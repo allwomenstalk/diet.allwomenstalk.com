@@ -1,6 +1,12 @@
 <?xml version='1.0' encoding='utf-8'?>
 <urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9">
   <url>
+    <loc>https://diet.allwomenstalk.com/did-you-know-this-about-protein/</loc>
+    <lastmod>2023-07-28</lastmod>
+    <changefreq>weekly</changefreq>
+    <priority>0.8</priority>
+  </url>
+  <url>
     <loc>https://diet.allwomenstalk.com/worst-things-to-eat-before-bed/</loc>
     <lastmod>2024-05-18</lastmod>
     <changefreq>weekly</changefreq>
@@ -621,12 +627,6 @@
   <url>
     <loc>https://diet.allwomenstalk.com/low-calorie-condiments-that-will-add-flavor-to-any-meal/</loc>
     <lastmod>2023-08-07</lastmod>
-    <changefreq>weekly</changefreq>
-    <priority>0.8</priority>
-  </url>
-  <url>
-    <loc>https://diet.allwomenstalk.com/did-you-know-this-about-protein/</loc>
-    <lastmod>2023-07-28</lastmod>
     <changefreq>weekly</changefreq>
     <priority>0.8</priority>
   </url>
