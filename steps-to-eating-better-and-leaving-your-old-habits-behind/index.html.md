@@ -3,7 +3,7 @@ title: "7 Steps to Eating Better and Leaving Your Old Habits behind ..."
 description: "Portion Control; Read the Facts; Calories Aren’t Everything; Go Light; Skip the Soda; More ..."
 url: "https://diet.allwomenstalk.com/steps-to-eating-better-and-leaving-your-old-habits-behind/"
 category: "diet"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Steps to Eating Better and Leaving Your Old Habits behind ...
@@ -43,15 +43,15 @@ That’s it for my advice on different steps to eating better. A healthy diet is
 ## Related Posts
 
 - [how to stop obsessing over food and weight](https://diet.allwomenstalk.com/ways-to-overcome-your-diet-obsessions-now/)
-- [11 Things You Need to Know about the GAPS Diet ...](https://vityle.com/things-you-need-to-know-about-the-gaps-diet/)
-- [7 Healthy Lifestyle Tips for Those Recovering from...](https://mindfulness.allwomenstalk.com/healthy-lifestyle-tips-for-those-recovering-from-an-eating-disorder/)
-- [7 Nutrition Tips for a Healthy Heart That You Shou...](https://health.allwomenstalk.com/nutrition-tips-for-a-healthy-heart-that-you-should-follow/)
-- [8 Easy Ways to Add More Water to Your Diet ...](https://diet.allwomenstalk.com/easy-ways-to-add-more-water-to-your-diet/)
-- [7 Ways to Reduce Your Sugar Consumption without Re...](https://health.allwomenstalk.com/ways-to-reduce-your-sugar-consumption-without-reaching-for-artificial-sweeteners/)
 - [7 Ways to Eat Healthy without Trying ...](https://health.allwomenstalk.com/ways-to-eat-healthy-without-trying/)
-- [7 Ways to Eat Green and Keep the Earth in Mind ...](https://lifestyle.allwomenstalk.com/ways-to-eat-green-and-keep-the-earth-in-mind/)
 - [7 Fun Ways to Start Changing up Your Healthy Eatin...](https://diet.allwomenstalk.com/fun-ways-to-start-changing-up-your-healthy-eating-habits-if-youre-in-a-rut/)
+- [7 Nutrition Tips for a Healthy Heart That You Shou...](https://health.allwomenstalk.com/nutrition-tips-for-a-healthy-heart-that-you-should-follow/)
+- [7 Healthy Lifestyle Tips for Those Recovering from...](https://mindfulness.allwomenstalk.com/healthy-lifestyle-tips-for-those-recovering-from-an-eating-disorder/)
+- [11 Things You Need to Know about the GAPS Diet ...](https://vityle.com/things-you-need-to-know-about-the-gaps-diet/)
+- [8 Easy Ways to Add More Water to Your Diet ...](https://diet.allwomenstalk.com/easy-ways-to-add-more-water-to-your-diet/)
+- [7 Ways to Eat Green and Keep the Earth in Mind ...](https://lifestyle.allwomenstalk.com/ways-to-eat-green-and-keep-the-earth-in-mind/)
 - [7 Simple Ways to Add More Fruit and Vegetables to ...](https://food.allwomenstalk.com/simple-ways-to-add-more-fruit-and-vegetables-to-your-diet/)
+- [7 Ways to Reduce Your Sugar Consumption without Re...](https://health.allwomenstalk.com/ways-to-reduce-your-sugar-consumption-without-reaching-for-artificial-sweeteners/)
 - [7 Tips on Eating Well ...](https://allwomenstalk.com/7-tips-on-eating-well/)
 - [7 Simple Ways to Improve Your Diet ...](https://health.allwomenstalk.com/simple-ways-to-improve-your-diet/)
 

@@ -3,7 +3,7 @@ title: "7 Healthy Kale Recipes ..."
 description: "Kale Chips Recipe...; Kale, Apple, and Pancetta Salad Recipe...; Salsa-Braised Kale Recipe...; Two-Bean Soup with Kale Recipe...; Eggplant Ratatouille with Beans and Kale Recipe...; More ..."
 url: "https://diet.allwomenstalk.com/healthy-kale-recipes/"
 category: "diet"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Healthy Kale Recipes ...
@@ -211,16 +211,16 @@ Whether you want to make **kale recipes** to help kick start your new healthy ha
 
 ## Related Posts
 
-- [substitutes for cooking](https://food.allwomenstalk.com/simple-ingredient-substitutions-to-try/)
-- [ethnic food ideas](https://cooking.allwomenstalk.com/healthy-and-filling-ethnic-recipes-to-try-this-fall/)
-- [crescent roll instructions](https://cooking.allwomenstalk.com/easy-crescent-roll-recipes/)
 - [planning a dinner party for 10](https://lifestyle.allwomenstalk.com/easy-tips-on-throwing-the-best-dinner-party-ever/)
-- [500 calorie lunches for work](https://diet.allwomenstalk.com/quick-and-easy-meals-under-500-calories/)
-- [best egg sandwich recipes](https://cooking.allwomenstalk.com/great-egg-sandwich-recipes-for-everyone/)
-- [what is the worst food for you](https://food.allwomenstalk.com/simple-dinner-anyone-can-learn-to-make/)
 - [new thanksgiving dinner ideas](https://allwomenstalk.com/7-new-ideas-for-thanksgiving-dinner/)
-- [reuse cans](https://diy.allwomenstalk.com/clever-ways-to-repurpose-tuna-cans/)
 - [fall salad recipes](https://food.allwomenstalk.com/ways-to-make-salad-taste-better/)
+- [substitutes for cooking](https://food.allwomenstalk.com/simple-ingredient-substitutions-to-try/)
+- [best egg sandwich recipes](https://cooking.allwomenstalk.com/great-egg-sandwich-recipes-for-everyone/)
+- [500 calorie lunches for work](https://diet.allwomenstalk.com/quick-and-easy-meals-under-500-calories/)
+- [reuse cans](https://diy.allwomenstalk.com/clever-ways-to-repurpose-tuna-cans/)
+- [what is the worst food for you](https://food.allwomenstalk.com/simple-dinner-anyone-can-learn-to-make/)
+- [crescent roll instructions](https://cooking.allwomenstalk.com/easy-crescent-roll-recipes/)
+- [ethnic food ideas](https://cooking.allwomenstalk.com/healthy-and-filling-ethnic-recipes-to-try-this-fall/)
 - [7 Meat and Potatoes Recipes ...](https://eatial.com/7-meat-and-potatoes-recipes/)
 - [7 Tasty Slow-Cooker Recipes ...](https://cooking.allwomenstalk.com/tasty-slow-cooker-recipes/)
 

@@ -3,7 +3,7 @@ title: "10 Unhealthiest Foods in America ..."
 description: "Quizno's Veggie Hero (Large); Applebee’s Appetizer Sampler; Five Guys French Fries (Large); Chili's Big Mouth Bites; Pepperidge Farm Roasted Chicken Pot Pie; More ..."
 url: "https://diet.allwomenstalk.com/unhealthiest-foods-in-america/"
 category: "diet"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 10 Unhealthiest Foods in America ...
@@ -64,12 +64,12 @@ There are tons more bad food choices in America so make sure you look for the nu
 
 ## Related Posts
 
-- [why is applebees oriental chicken salad so high in...](https://diet.allwomenstalk.com/most-fattening-salads-to-avoid/)
-- [things that are surprisingly not vegetarian](https://food.allwomenstalk.com/common-foods-you-thought-were-vegetarian-but-might-not-be/)
-- [natural detox foods](https://health.allwomenstalk.com/foods-that-naturally-detox-your-body/)
 - [what is a good breakfast for energy](https://food.allwomenstalk.com/energy-boosting-breakfast-foods/)
 - [site:food.allwomenstalk.com](https://food.allwomenstalk.com/surprising-sources-of-potassium/)
+- [why is applebees oriental chicken salad so high in...](https://diet.allwomenstalk.com/most-fattening-salads-to-avoid/)
+- [things that are surprisingly not vegetarian](https://food.allwomenstalk.com/common-foods-you-thought-were-vegetarian-but-might-not-be/)
 - [foods that calm you down](https://health.allwomenstalk.com/foods-to-calm-you-down/)
+- [natural detox foods](https://health.allwomenstalk.com/foods-that-naturally-detox-your-body/)
 - [100 calories of food](https://food.allwomenstalk.com/snacks-under-100-calories/)
 - [how to bring food to a potluck](https://food.allwomenstalk.com/healthy-foods-to-bring-to-any-pot-luck/)
 - [face oil for gua sha sensitive skin](https://food.allwomenstalk.com/best-snacks-for-kids/)

@@ -3,7 +3,7 @@ title: "7 Ways to Say No to Food Peer Pressure during the Holidays ..."
 description: "Ask the Host/Hostess What is Being Served; Eat Ahead of Time; Bring Healthy Dishes for Everyone; Distract Yourself Away from the Food; Hydrate More Often; More ..."
 url: "https://diet.allwomenstalk.com/ways-to-say-no-to-food-peer-pressure-during-the-holidays/"
 category: "diet"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Ways to Say No to Food Peer Pressure during the Holidays ...
@@ -42,16 +42,16 @@ The holiday season doesn’t mean you need to bid your diet farewell! Play your 
 
 ## Related Posts
 
-- [stock up groceries](https://food.allwomenstalk.com/ways-to-plan-your-meals-and-stick-to-it/)
+- [7 Ways to Lower Your Cholesterol ...](https://health.allwomenstalk.com/ways-to-lower-your-cholesterol/)
 - [You Need to Adopt These 7 Ways to Get the Most Nut...](https://food.allwomenstalk.com/you-need-to-adopt-these-ways-to-get-the-most-nutritional-value-from-your-food/)
-- [7 Tips for Starting and Keeping a Food Journal ...](https://weightloss.allwomenstalk.com/tips-for-starting-and-keeping-a-food-journal/)
-- [7 Healthy Cooking Resolutions to Make in 2019 ...](https://food.allwomenstalk.com/healthy-cooking-resolutions-to-make-in/)
 - [7 Things to Give up for a Healthier Life ...](https://health.allwomenstalk.com/things-to-give-up-for-a-healthier-life/)
 - [7 Healthy Spending Habits ...](https://money.allwomenstalk.com/healthy-spending-habits/)
-- [7 Ways to Lower Your Cholesterol ...](https://health.allwomenstalk.com/ways-to-lower-your-cholesterol/)
+- [9 Realistic Ways to Start and Stick to Healthier H...](https://health.allwomenstalk.com/realistic-ways-to-start-and-stick-to-healthier-habits/)
+- [7 Healthy Cooking Resolutions to Make in 2019 ...](https://food.allwomenstalk.com/healthy-cooking-resolutions-to-make-in/)
 - [7 Ways to Eat Healthy during the Holidays ...](https://diet.allwomenstalk.com/ways-to-eat-healthy-during-the-holidays/)
 - [7 Ways to Avoid Gaining Weight from Eating out of ...](https://weightloss.allwomenstalk.com/ways-to-avoid-gaining-weight-from-eating-out-of-boredom/)
-- [9 Realistic Ways to Start and Stick to Healthier H...](https://health.allwomenstalk.com/realistic-ways-to-start-and-stick-to-healthier-habits/)
+- [7 Tips for Starting and Keeping a Food Journal ...](https://weightloss.allwomenstalk.com/tips-for-starting-and-keeping-a-food-journal/)
+- [stock up groceries](https://food.allwomenstalk.com/ways-to-plan-your-meals-and-stick-to-it/)
 - [12 Tips on Watching What You Eat during Holidays ....](https://allwomenstalk.com/12-tips-on-watching-what-you-eat-during-holidays/)
 - [5 Tips on Resisting the Food Temptation ...](https://allwomenstalk.com/resisting-the-food-temptation/)
 
