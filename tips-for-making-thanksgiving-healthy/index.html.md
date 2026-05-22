@@ -3,7 +3,7 @@ title: "Top Tips for a Happy Healthy Thanksgiving ..."
 description: "Choose White Meat over Dark; Pick Your Battles; Sneak Extra Veggies into Side Dishes and Casseroles; Try Cutting Fat in Your Recipes by One Half or One Third; Avoid Crappy Appetizers; More ..."
 url: "https://diet.allwomenstalk.com/tips-for-making-thanksgiving-healthy/"
 category: "diet"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # Top Tips for a Happy Healthy Thanksgiving ...
@@ -42,16 +42,16 @@ There are plenty of ways to make Thanksgiving healthy this year! Don’t think t
 
 ## Related Posts
 
-- [7 Simple Ways to Prevent Food Poisoning ...](https://health.allwomenstalk.com/simple-ways-to-prevent-food-poisoning/)
-- [7 Ways to Say No to Food Peer Pressure during the ...](https://diet.allwomenstalk.com/ways-to-say-no-to-food-peer-pressure-during-the-holidays/)
-- [sticking to diet](https://diet.allwomenstalk.com/tips-for-sticking-to-your-diet-this-year/)
-- [7 Healthy Meal Ideas to Start off 2019 ...](https://food.allwomenstalk.com/healthy-meal-ideas-to-start-off/)
-- [7 Healthy Spending Habits ...](https://money.allwomenstalk.com/healthy-spending-habits/)
-- [cut down on calorie intake](https://weightloss.allwomenstalk.com/ways-to-reduce-your-calorie-intake-over-christmas/)
-- [7 Tips for Vegans Going to Christmas Parties ...](https://lifestyle.allwomenstalk.com/tips-for-vegans-going-to-christmas-parties/)
-- [How to Prevent Overeating after Working out ...](https://diet.allwomenstalk.com/tips-to-prevent-overeating-after-working-out/)
-- [7 Healthy Cooking Resolutions to Make in 2019 ...](https://food.allwomenstalk.com/healthy-cooking-resolutions-to-make-in/)
 - [7 Tips on Hosting a Healthy Holiday Party ...](https://health.allwomenstalk.com/tips-on-hosting-a-healthy-holiday-party/)
+- [How to Prevent Overeating after Working out ...](https://diet.allwomenstalk.com/tips-to-prevent-overeating-after-working-out/)
+- [7 Healthy Meal Ideas to Start off 2019 ...](https://food.allwomenstalk.com/healthy-meal-ideas-to-start-off/)
+- [7 Tips for Vegans Going to Christmas Parties ...](https://lifestyle.allwomenstalk.com/tips-for-vegans-going-to-christmas-parties/)
+- [7 Ways to Say No to Food Peer Pressure during the ...](https://diet.allwomenstalk.com/ways-to-say-no-to-food-peer-pressure-during-the-holidays/)
+- [7 Simple Ways to Prevent Food Poisoning ...](https://health.allwomenstalk.com/simple-ways-to-prevent-food-poisoning/)
+- [7 Healthy Cooking Resolutions to Make in 2019 ...](https://food.allwomenstalk.com/healthy-cooking-resolutions-to-make-in/)
+- [sticking to diet](https://diet.allwomenstalk.com/tips-for-sticking-to-your-diet-this-year/)
+- [cut down on calorie intake](https://weightloss.allwomenstalk.com/ways-to-reduce-your-calorie-intake-over-christmas/)
+- [7 Healthy Spending Habits ...](https://money.allwomenstalk.com/healthy-spending-habits/)
 - [7 Tips to Maintain Good Health ...](https://health.allwomenstalk.com/tips-to-maintain-good-health/)
 - [10 Things to Know to Stay Healthy ...](https://health.allwomenstalk.com/things-to-know-to-stay-healthy/)
 

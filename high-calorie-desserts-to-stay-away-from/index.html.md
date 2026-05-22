@@ -3,7 +3,7 @@ title: "7 High Calorie Desserts to Stay Away from ..."
 description: "The Cheesecake Factory Chocolate Tower Truffle Cake; Haagen Daas Rocky Road Ice Cream; Coldstone Creamery Oh Fudge Shake; Starbuck’s Peppermint White Mocha; TGIFriday’s Vanilla Bean Cheesecake; More ..."
 url: "https://diet.allwomenstalk.com/high-calorie-desserts-to-stay-away-from/"
 category: "diet"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 High Calorie Desserts to Stay Away from ...
@@ -51,16 +51,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/22135414)
 
 ## Related Posts
 
-- [cake to impress](https://cooking.allwomenstalk.com/spring-treats-to-impress-your-friends/)
 - [recipes pastries](https://food.allwomenstalk.com/most-delicious-french-desserts/)
-- [egg-free cakes](https://cooking.allwomenstalk.com/awesome-egg-free-cakes/)
 - [15 year old birthday cake ideas](https://cooking.allwomenstalk.com/colorful-kids-birthday-cakes/)
-- [jumpsuits at mr price](https://cooking.allwomenstalk.com/awesome-st-patricks-day-treats-to-make/)
 - [fruits recipes dessert](https://food.allwomenstalk.com/low-calorie-fruit-dessert-recipes/)
-- [decorating a cake ideas](https://cooking.allwomenstalk.com/fun-tips-for-fabulous-cake-decorating/)
-- [mini desserts easy](https://cooking.allwomenstalk.com/easy-to-make-mini-desserts-your-guests-will-love/)
 - [most profitable desserts to sell](https://cooking.allwomenstalk.com/sweet-dessert-food-trends/)
+- [decorating a cake ideas](https://cooking.allwomenstalk.com/fun-tips-for-fabulous-cake-decorating/)
 - [7-up cupcakes](https://cooking.allwomenstalk.com/scrumptious-and-fabulous-grown-up-cupcakes/)
+- [jumpsuits at mr price](https://cooking.allwomenstalk.com/awesome-st-patricks-day-treats-to-make/)
+- [mini desserts easy](https://cooking.allwomenstalk.com/easy-to-make-mini-desserts-your-guests-will-love/)
+- [cake to impress](https://cooking.allwomenstalk.com/spring-treats-to-impress-your-friends/)
+- [egg-free cakes](https://cooking.allwomenstalk.com/awesome-egg-free-cakes/)
 - [7 Faux-Pas for Dieters to Avoid ...](https://diet.allwomenstalk.com/faux-pas-for-dieters-to-avoid/)
 - [7 Definite Diet No-nos ...](https://diet.allwomenstalk.com/definite-diet-no-nos/)
 

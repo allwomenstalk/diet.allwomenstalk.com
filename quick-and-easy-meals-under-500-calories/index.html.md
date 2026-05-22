@@ -3,7 +3,7 @@ title: "8 Quick and Easy Meals under 500 Calories ..."
 description: "Bakes Beans on Toast: 359 Calories; Quorn Medley: 462 Calories; 5 Grams of Whole Grain Brown Rice; Avocado Toast: 462 Calories; Tuna + Spinach Wrap: 500 Calories; More ..."
 url: "https://diet.allwomenstalk.com/quick-and-easy-meals-under-500-calories/"
 category: "diet"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 8 Quick and Easy Meals under 500 Calories ...
@@ -144,16 +144,16 @@ It can be very tempting to reach for a calorific meal in a moment of temptation 
 
 ## Related Posts
 
-- [thanksgiving courses](https://allwomenstalk.com/8-courses-for-the-perfect-thanksgiving/)
 - [protein rich breakfast recipes](https://food.allwomenstalk.com/protein-rich-breakfast-recipes/)
+- [fall salad recipes](https://food.allwomenstalk.com/ways-to-make-salad-taste-better/)
+- [mens favorite meals](https://food.allwomenstalk.com/meal-recipes-hell-love/)
+- [kid pretending to like food](https://food.allwomenstalk.com/fun-and-healthy-recipes-for-the-kids/)
+- [bacon in not so hungry mouth](https://food.allwomenstalk.com/bacon-based-meals-that-will-have-you-weak-at-the-knees/)
+- [thanksgiving courses](https://allwomenstalk.com/8-courses-for-the-perfect-thanksgiving/)
+- [girly foods](https://food.allwomenstalk.com/best-comfort-foods-for-girls-night-in/)
+- [easy fast things to bake](https://food.allwomenstalk.com/super-easy-baking-recipes-to-help-you-start-appreciating-your-oven/)
 - [dinner ideas for sick stomach](https://food.allwomenstalk.com/soothing-recipes-for-upset-tummies/)
 - [busy family recipes](https://food.allwomenstalk.com/easy-recipes-for-busy-families/)
-- [mens favorite meals](https://food.allwomenstalk.com/meal-recipes-hell-love/)
-- [bacon in not so hungry mouth](https://food.allwomenstalk.com/bacon-based-meals-that-will-have-you-weak-at-the-knees/)
-- [kid pretending to like food](https://food.allwomenstalk.com/fun-and-healthy-recipes-for-the-kids/)
-- [easy fast things to bake](https://food.allwomenstalk.com/super-easy-baking-recipes-to-help-you-start-appreciating-your-oven/)
-- [fall salad recipes](https://food.allwomenstalk.com/ways-to-make-salad-taste-better/)
-- [girly foods](https://food.allwomenstalk.com/best-comfort-foods-for-girls-night-in/)
 - [9 Foods under 100 Calories ...](https://weightloss.allwomenstalk.com/foods-under-100-calories/)
 - [8 Tips for Counting Calories ...](https://weightloss.allwomenstalk.com/tips-for-counting-calories/)
 

@@ -3,7 +3,7 @@ title: "7 Healthy Dessert Ideas for Thanksgiving ..."
 description: "Pumpkin Pie ‘Pudding’; Homemade Cranberry Sauce with Low-Fat Ice Cream; Baked Apples with Cinnamon and Raisins; Chocolate Dipped Strawberries (and Other Fruit); Poached Pears with Blue Cheese/Gorgonzola Cheese; More ..."
 url: "https://diet.allwomenstalk.com/healthy-dessert-ideas-for-thanksgiving/"
 category: "diet"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Healthy Dessert Ideas for Thanksgiving ...
@@ -57,15 +57,15 @@ Thanksgiving desserts can be both healthy and delicious! What are some of your g
 ## Related Posts
 
 - [pudding cups flavors](https://food.allwomenstalk.com/delicious-pudding-recipes-you-have-to-taste/)
-- [christmas pinwheel cookies](https://food.allwomenstalk.com/christmas-cookies-for-this-years-holidays/)
 - [original bisquick coffee cake recipe](https://food.allwomenstalk.com/coffee-cake-recipes-youll-fall-in-love-with/)
 - [crazy gingerbread house ideas](https://food.allwomenstalk.com/gingerbread-houses-you-can-build-and-eat/)
-- [man matters hair gummies](https://food.allwomenstalk.com/intensely-adorable-snowman-snack-recipes/)
-- [simple fruit centerpieces](https://food.allwomenstalk.com/tasty-fruit-platters-for-just-about-any-celebration/)
-- [sales a holic](https://food.allwomenstalk.com/girl-scout-cookies-online-sales-announcement-is-every-cookie-holics-dream/)
 - [what to put on gingerbread house](https://food.allwomenstalk.com/awesome-foods-for-decorating-a-gingerbread-house/)
-- [metallic gold frosting](https://food.allwomenstalk.com/holiday-frosting-color-combinations/)
 - [oreo dj mixer](https://food.allwomenstalk.com/delicious-oreo-themed-desserts-youll-devour/)
+- [christmas pinwheel cookies](https://food.allwomenstalk.com/christmas-cookies-for-this-years-holidays/)
+- [simple fruit centerpieces](https://food.allwomenstalk.com/tasty-fruit-platters-for-just-about-any-celebration/)
+- [man matters hair gummies](https://food.allwomenstalk.com/intensely-adorable-snowman-snack-recipes/)
+- [metallic gold frosting](https://food.allwomenstalk.com/holiday-frosting-color-combinations/)
+- [sales a holic](https://food.allwomenstalk.com/girl-scout-cookies-online-sales-announcement-is-every-cookie-holics-dream/)
 - [7 Low Fat Dessert Recipes ...](https://diet.allwomenstalk.com/low-fat-dessert-recipes/)
 - [7 Scrumptiously Yummy and Incredibly Unique Thanks...](https://thecrepescafe.com/yummy-and-unique-thanksgiving-desserts/)
 

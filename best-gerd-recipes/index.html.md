@@ -3,7 +3,7 @@ title: "34 Best Gerd Recipes ..."
 description: "Heartburn-Friendly Chicken Pot Pie; Heartburn-Friendly Chicken Noodle Soup; Heartburn-Friendly Tomato Sauce-Free Lasagna; Easy 30-Minute Kale, White Bean, and Chicken Soup; Apple Ring Pancakes; More ..."
 url: "https://diet.allwomenstalk.com/best-gerd-recipes/"
 category: "diet"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 34 Best Gerd Recipes ...
@@ -288,15 +288,15 @@ This is one of my go-to fast and easy recipes. I love it because I usually have 
 
 ## Related Posts
 
-- [single serve baked mac and cheese](https://food.allwomenstalk.com/best-mini-cocotte-recipes/)
-- [ground sirloin recipes](https://food.allwomenstalk.com/best-ground-sirloin-recipes/)
-- [Wine amp Food Festival at Home ...](https://allwomenstalk.com/wine-food-festival-at-home/)
-- [plated menus](https://food.allwomenstalk.com/best-plated-recipes/)
-- [dinners dishes and desserts](https://desserts.allwomenstalk.com/dinners-dishes-and-desserts/)
 - [best asian fish recipes](https://food.allwomenstalk.com/best-asian-fish-recipes/)
-- [healthy noodle costco](https://allwomenstalk.com/healthy-noodle-costco-recipes/)
-- [healthy shaved steak recipes](https://food.allwomenstalk.com/best-recipes-with-shaved-steak/)
 - [dessert](https://eatial.com/best-ellie-krieger-recipes/)
+- [plated menus](https://food.allwomenstalk.com/best-plated-recipes/)
+- [healthy shaved steak recipes](https://food.allwomenstalk.com/best-recipes-with-shaved-steak/)
+- [healthy noodle costco](https://allwomenstalk.com/healthy-noodle-costco-recipes/)
+- [ground sirloin recipes](https://food.allwomenstalk.com/best-ground-sirloin-recipes/)
+- [single serve baked mac and cheese](https://food.allwomenstalk.com/best-mini-cocotte-recipes/)
+- [Wine amp Food Festival at Home ...](https://allwomenstalk.com/wine-food-festival-at-home/)
+- [dinners dishes and desserts](https://desserts.allwomenstalk.com/dinners-dishes-and-desserts/)
 - [reames beef and noodles](https://food.allwomenstalk.com/best-reames-noodle-recipes/)
 - [40 Best Southern Salads Recipes ...](https://eatial.com/best-southern-salads-recipes/)
 - [24 Best Fish Breakfast Recipes ...](https://eatial.com/best-fish-breakfast-recipes/)
