@@ -3,7 +3,7 @@ title: "Most Terrible Meals to Skip from Your Favorite Chain ..."
 description: "Applebee's Provolone – Stuffed Meatballs; Chili's Southern Smokehouse Burger; T.G.I Friday's Jack Daniel's Grill; Red Lobster's Create Your Own Combo; Dickey's BBQ Pit's 3-Meal Plate; More ..."
 url: "https://diet.allwomenstalk.com/never-order-these-meals-from-chain-resaurants/"
 category: "diet"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Most Terrible Meals to Skip from Your Favorite Chain ...
@@ -14,7 +14,7 @@ A menu of choices screaming eat me, eat me, is a terrible temptation. Obviously 
 
 ![Applebee's Provolone – Stuffed Meatballs](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/u1/wd/wkv61r205592a25bda218409831569_504x378.jpg)
 
-These cheese-filled meatballs with fettuccine pasta are a big no-no because they pack a whopping 43g of [saturated](https://food.allwomenstalk.com/smart-ways-to-reduce-the-fat-content-in-food/) fat with 1,510 calories. The FDA recommends you should eat about 2,000 calories and no more than 65g of fat (20g of which should be saturated fat). Enjoy this specialty from Applebee's and forget about eating anything else for the rest of the day. Can you do it?
+These cheese-filled meatballs with fettuccine pasta are a big no-no because they pack a whopping 43g of saturated fat with 1,510 calories. The FDA recommends you should eat about 2,000 calories and no more than 65g of fat (20g of which should be saturated fat). Enjoy this specialty from Applebee's and forget about eating anything else for the rest of the day. Can you do it?
 
 ## 2. Chili's Southern Smokehouse Burger
 
@@ -54,16 +54,16 @@ As a special treat, go ahead and indulge. Or just do it anyway but work it off! 
 
 ## Related Posts
 
+- [These 7 Things Will Make Your PMS Even Worse ...](https://health.allwomenstalk.com/these-things-will-make-your-pms-even-worse/)
+- [should love be earned](https://love.allwomenstalk.com/things-you-shouldnt-have-to-do-to-earn-his-love/)
 - [Stop Doing These Things That Make You Look Less Cl...](https://fashion.allwomenstalk.com/stop-doing-these-things-that-make-you-look-less-classy/)
-- [Never do These Things to Try and Impress a Man ...](https://love.allwomenstalk.com/never-do-these-things-to-impress-a-man/)
-- [Never Write These Things in a Professional Email ....](https://lifestyle.allwomenstalk.com/never-write-these-things-in-a-professional-email/)
 - [7 Hurtful Things That Can Lead to Cheating ...](https://love.allwomenstalk.com/hurtful-things-that-can-lead-to-cheating/)
 - [7 Expectations You Shouldnt Set for Your BF ...](https://love.allwomenstalk.com/expectations-you-shouldnt-set-for-your-bf/)
-- [Self-Respecting Women Will Never Deal with THESE ....](https://love.allwomenstalk.com/things-no-self-respecting-woman-should-put-up-with/)
-- [should love be earned](https://love.allwomenstalk.com/things-you-shouldnt-have-to-do-to-earn-his-love/)
-- [7 Things to Avoid when Youre on Your Period ...](https://health.allwomenstalk.com/things-to-avoid-when-youre-on-your-period/)
-- [These 7 Things Will Make Your PMS Even Worse ...](https://health.allwomenstalk.com/these-things-will-make-your-pms-even-worse/)
 - [7 Things Your BF Will Never do if He Really Wants ...](https://love.allwomenstalk.com/things-you-need-to-believe-your-bf-would-never-do/)
+- [Self-Respecting Women Will Never Deal with THESE ....](https://love.allwomenstalk.com/things-no-self-respecting-woman-should-put-up-with/)
+- [Never Write These Things in a Professional Email ....](https://lifestyle.allwomenstalk.com/never-write-these-things-in-a-professional-email/)
+- [Never do These Things to Try and Impress a Man ...](https://love.allwomenstalk.com/never-do-these-things-to-impress-a-man/)
+- [7 Things to Avoid when Youre on Your Period ...](https://health.allwomenstalk.com/things-to-avoid-when-youre-on-your-period/)
 - [7 Tips to Avoid Vacation Food Poisoning ...](https://travel.allwomenstalk.com/7-tips-to-avoid-vacation-food-poisoning/)
 - [8 Wonderfully Delightful Low Calorie Fast Food Cho...](https://diet.allwomenstalk.com/wonderfully-delightful-low-calorie-fast-food-choices/)
 

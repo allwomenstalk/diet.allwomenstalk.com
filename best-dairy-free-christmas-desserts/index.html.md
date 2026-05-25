@@ -3,7 +3,7 @@ title: "11 Best Dairy Free Christmas Desserts ..."
 description: "Classic Sugar Cookie Cut-Outs; Vegan Cream Cheese Frosting; Scandinavian Thumbprint Cookies; Pumpkin Juice; Crisco® Sugar Cookies; More ..."
 url: "https://diet.allwomenstalk.com/best-dairy-free-christmas-desserts/"
 category: "diet"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 11 Best Dairy Free Christmas Desserts ...

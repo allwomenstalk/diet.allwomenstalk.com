@@ -3,7 +3,7 @@ title: "7 Worst Things to Order at Coffee Shops for Your Weight ..."
 description: "The Mocha Frappe; Bran Muffins; Yogurt Parfaits; Bagels and Cream Cheese; Holiday Drinks; More ..."
 url: "https://diet.allwomenstalk.com/worst-things-to-order-at-coffee-shops-for-your-weight/"
 category: "diet"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Worst Things to Order at Coffee Shops for Your Weight ...
@@ -56,16 +56,16 @@ My personal favorite healthy choices at coffee shops are simple regular coffee w
 
 ## Related Posts
 
+- [why see a dietitian](https://health.allwomenstalk.com/important-reasons-to-see-a-dietitian/)
+- [yo-yo dieting effects](https://diet.allwomenstalk.com/harmful-effects-of-yoyo-dieting/)
+- [just eat healthy](https://diet.allwomenstalk.com/reasons-to-ditch-your-diet-and-just-eat-healthy/)
+- [how to cook oats](https://diet.allwomenstalk.com/weight-loss-opportunities-in-your-diet-you-might-be-missing-out-on/)
+- [how to choose a nutritionist](https://health.allwomenstalk.com/things-to-consider-before-choosing-a-nutritionist/)
 - [diet makeover](https://diet.allwomenstalk.com/signs-your-diet-desperately-needs-a-makeover/)
+- [beliefs about food](https://food.allwomenstalk.com/eating-beliefs-we-grew-up-learning-wrong/)
 - [signs of bad diet](https://diet.allwomenstalk.com/signs-your-diet-is-unhealthy-and-might-be-too-extreme/)
 - [what causes hunger pangs](https://health.allwomenstalk.com/shocking-reasons-for-your-hunger-pangs/)
-- [how to cook oats](https://diet.allwomenstalk.com/weight-loss-opportunities-in-your-diet-you-might-be-missing-out-on/)
-- [beliefs about food](https://food.allwomenstalk.com/eating-beliefs-we-grew-up-learning-wrong/)
-- [just eat healthy](https://diet.allwomenstalk.com/reasons-to-ditch-your-diet-and-just-eat-healthy/)
-- [yo-yo dieting effects](https://diet.allwomenstalk.com/harmful-effects-of-yoyo-dieting/)
-- [how to choose a nutritionist](https://health.allwomenstalk.com/things-to-consider-before-choosing-a-nutritionist/)
 - [how to stop binge eating at night](https://health.allwomenstalk.com/reasons-you-crave-nut-butter-and-cant-stop-binging-on-it/)
-- [why see a dietitian](https://health.allwomenstalk.com/important-reasons-to-see-a-dietitian/)
 - [7 Things That Sabotage Your Weight Loss Plan ...](https://weightloss.allwomenstalk.com/things-that-sabotage-your-weight-loss-plan/)
 - [7 Common Weight Loss Mistakes to Avoid ...](https://weightloss.allwomenstalk.com/common-weight-loss-mistakes-to-avoid/)
 
