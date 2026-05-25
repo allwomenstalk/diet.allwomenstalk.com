@@ -42,15 +42,15 @@ What whole grains are your favorites?
 
 ## Related Posts
 
-- [how to curb cravings](https://weightloss.allwomenstalk.com/this-is-how-athletes-curb-their-food-cravings/)
-- [healthy dining out](https://food.allwomenstalk.com/ways-to-eat-healthy-when-dining-out-2/)
-- [Heres How to Know if You Eat Enough Veggies ...](https://health.allwomenstalk.com/heres-how-to-know-if-you-eat-enough-veggies/)
-- [7 Ways to Reverse Bad Diet Decisions ...](https://weightloss.allwomenstalk.com/ways-to-reverse-bad-diet-decisions/)
-- [7 Healthy Things to do While Binge Watching  Netfl...](https://health.allwomenstalk.com/healthy-things-to-do-while-watching-netflix/)
-- [healthiest option at mexican restaurant](https://food.allwomenstalk.com/foolproof-tips-for-eating-healthy-if-you-love-mexican-food/)
 - [How to Eat Fish to Get Maximum Health Benefits ...](https://diet.allwomenstalk.com/how-to-eat-fish-to-get-maximum-health-benefits/)
-- [Kick These Unhealthy Eating Habits to the Curb ...](https://money.allwomenstalk.com/kick-these-unhealthy-eating-habits-to-the-curb/)
+- [7 Healthy Things to do While Binge Watching  Netfl...](https://health.allwomenstalk.com/healthy-things-to-do-while-watching-netflix/)
+- [how to curb cravings](https://weightloss.allwomenstalk.com/this-is-how-athletes-curb-their-food-cravings/)
+- [healthiest option at mexican restaurant](https://food.allwomenstalk.com/foolproof-tips-for-eating-healthy-if-you-love-mexican-food/)
 - [Dont Let These Sneaky Menu Words Make You Eat Unhe...](https://health.allwomenstalk.com/dont-let-these-sneaky-menu-words-make-you-eat-unhealthy/)
+- [Heres How to Know if You Eat Enough Veggies ...](https://health.allwomenstalk.com/heres-how-to-know-if-you-eat-enough-veggies/)
+- [healthy dining out](https://food.allwomenstalk.com/ways-to-eat-healthy-when-dining-out-2/)
+- [Kick These Unhealthy Eating Habits to the Curb ...](https://money.allwomenstalk.com/kick-these-unhealthy-eating-habits-to-the-curb/)
+- [7 Ways to Reverse Bad Diet Decisions ...](https://weightloss.allwomenstalk.com/ways-to-reverse-bad-diet-decisions/)
 - [Follow These Tips to Make Your Takeout Healthier ....](https://diet.allwomenstalk.com/follow-these-tips-to-make-your-takeout-healthier/)
 - [7 Important Reasons to Improve Your Diet and Eatin...](https://diet.allwomenstalk.com/important-reasons-to-improve-your-diet-and-eating-habits/)
 - [7 Reasons to Ditch Your Diet and Just Eat Healthy ...](https://diet.allwomenstalk.com/reasons-to-ditch-your-diet-and-just-eat-healthy/)

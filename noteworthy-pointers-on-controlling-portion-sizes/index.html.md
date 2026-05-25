@@ -48,15 +48,15 @@ Top Image Source: _stylepantry.com_
 
 ## Related Posts
 
-- [are goldfish bad for weight loss](https://food.allwomenstalk.com/ways-to-avoid-late-night-snacking/)
-- [paleo diet tips](https://health.allwomenstalk.com/tips-about-followin-a-paleo-diet/)
-- [artnaturals essential oil](https://food.allwomenstalk.com/healthy-cooking-tips-you-wont-have-heard-before/)
-- [energy kick](https://health.allwomenstalk.com/healthy-ways-to-get-an-energy-kick/)
-- [avocado ways to eat](https://food.allwomenstalk.com/mouth-watering-ways-to-eat-avocado/)
-- [how to have healthy relationship with food](https://food.allwomenstalk.com/healthy-rules-to-make-you-love-food/)
 - [how to start eating clean](https://health.allwomenstalk.com/ways-to-start-eating-clean/)
-- [staying healthy in the new year](https://health.allwomenstalk.com/simple-ways-to-stay-healthy-in-the-new-year/)
+- [paleo diet tips](https://health.allwomenstalk.com/tips-about-followin-a-paleo-diet/)
+- [energy kick](https://health.allwomenstalk.com/healthy-ways-to-get-an-energy-kick/)
 - [best way to get omega-3](https://diet.allwomenstalk.com/healthy-ways-to-get-omega-3/)
+- [how to have healthy relationship with food](https://food.allwomenstalk.com/healthy-rules-to-make-you-love-food/)
+- [are goldfish bad for weight loss](https://food.allwomenstalk.com/ways-to-avoid-late-night-snacking/)
+- [artnaturals essential oil](https://food.allwomenstalk.com/healthy-cooking-tips-you-wont-have-heard-before/)
+- [avocado ways to eat](https://food.allwomenstalk.com/mouth-watering-ways-to-eat-avocado/)
+- [staying healthy in the new year](https://health.allwomenstalk.com/simple-ways-to-stay-healthy-in-the-new-year/)
 - [fast food cravings](https://food.allwomenstalk.com/ways-to-fight-fast-food-cravings/)
 - [8 Tips for Counting Calories ...](https://weightloss.allwomenstalk.com/tips-for-counting-calories/)
 - [8 Tips on Dealing with a Picky Eater ...](https://parenting.allwomenstalk.com/tips-on-dealing-with-a-picky-eater/)

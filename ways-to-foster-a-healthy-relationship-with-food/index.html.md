@@ -52,16 +52,16 @@ Sources [life.gaiam.com](http://life.gaiam.com?ref=allwomenstalk.com), [shine.ya
 
 ## Related Posts
 
-- [how to eat healthy at italian restaurant](https://food.allwomenstalk.com/ways-to-eat-healthfully-at-an-italian-restaurant/)
-- [how to make baked goods healthier](https://food.allwomenstalk.com/ways-to-make-your-baked-goods-healthier/)
-- [vsco pregnant](https://food.allwomenstalk.com/helpful-hints-when-catering-for-a-guest-on-a-gluten-free-diet/)
-- [healthy foods when eating out](https://food.allwomenstalk.com/ways-to-eat-healthy-when-dining-out/)
-- [prezzo mac and cheese](https://food.allwomenstalk.com/ways-to-make-a-healthier-mac-and-cheese/)
-- [how to change your eating habits permanently](https://diet.allwomenstalk.com/ways-to-permanently-change-your-eating-habits-for-the-better/)
-- [eating lunch at desk](https://diet.allwomenstalk.com/tips-for-eating-lunch-at-your-desk/)
 - [tracy anderson diet menu](https://diet.allwomenstalk.com/diet-tips-from-tracy-anderson-to-add-to-your-life-today/)
-- [curb sweet tooth](https://diet.allwomenstalk.com/amazing-ways-to-curb-your-sweet-tooth/)
+- [eating lunch at desk](https://diet.allwomenstalk.com/tips-for-eating-lunch-at-your-desk/)
+- [how to change your eating habits permanently](https://diet.allwomenstalk.com/ways-to-permanently-change-your-eating-habits-for-the-better/)
+- [vsco pregnant](https://food.allwomenstalk.com/helpful-hints-when-catering-for-a-guest-on-a-gluten-free-diet/)
+- [how to eat healthy at italian restaurant](https://food.allwomenstalk.com/ways-to-eat-healthfully-at-an-italian-restaurant/)
+- [prezzo mac and cheese](https://food.allwomenstalk.com/ways-to-make-a-healthier-mac-and-cheese/)
+- [how to make baked goods healthier](https://food.allwomenstalk.com/ways-to-make-your-baked-goods-healthier/)
+- [healthy foods when eating out](https://food.allwomenstalk.com/ways-to-eat-healthy-when-dining-out/)
 - [happy meal braclet](https://food.allwomenstalk.com/ways-to-build-a-healthier-happy-meal/)
+- [curb sweet tooth](https://diet.allwomenstalk.com/amazing-ways-to-curb-your-sweet-tooth/)
 - [10 Ways to Eat More Healthy ...](https://allwomenstalk.com/10-ways-to-eat-more-healthy/)
 - [7 Ways to Get Your Family to Eat Healthy ...](https://allwomenstalk.com/7-ways-to-get-your-family-to-eat-healthy/)
 

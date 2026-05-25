@@ -42,16 +42,16 @@ Learning to eat less is something that has to be learned. I would love to learn 
 
 ## Related Posts
 
-- [curb sweet tooth](https://diet.allwomenstalk.com/amazing-ways-to-curb-your-sweet-tooth/)
-- [how to have a healthy relationship with food and l...](https://diet.allwomenstalk.com/ways-to-foster-a-healthy-relationship-with-food/)
-- [how to make baked goods healthier](https://food.allwomenstalk.com/ways-to-make-your-baked-goods-healthier/)
-- [how to eat healthy at italian restaurant](https://food.allwomenstalk.com/ways-to-eat-healthfully-at-an-italian-restaurant/)
-- [i want to start eating healthy but dont know where...](https://health.allwomenstalk.com/tips-for-getting-healthy-if-you-dont-know-where-to-start/)
-- [healthy options mexican restaurant](https://food.allwomenstalk.com/tips-on-how-to-eat-healthy-at-a-mexican-restaurant/)
-- [food for extremely picky eaters toddler](https://food.allwomenstalk.com/tips-for-picky-eaters-to-get-them-to-enjoy-their-food/)
 - [how to eat healthy at chinese restaurant](https://food.allwomenstalk.com/tips-for-eating-healthy-at-a-chinese-restaurant/)
+- [curb sweet tooth](https://diet.allwomenstalk.com/amazing-ways-to-curb-your-sweet-tooth/)
 - [vsco pregnant](https://food.allwomenstalk.com/helpful-hints-when-catering-for-a-guest-on-a-gluten-free-diet/)
+- [food for extremely picky eaters toddler](https://food.allwomenstalk.com/tips-for-picky-eaters-to-get-them-to-enjoy-their-food/)
 - [healthy foods when eating out](https://food.allwomenstalk.com/ways-to-eat-healthy-when-dining-out/)
+- [how to make baked goods healthier](https://food.allwomenstalk.com/ways-to-make-your-baked-goods-healthier/)
+- [healthy options mexican restaurant](https://food.allwomenstalk.com/tips-on-how-to-eat-healthy-at-a-mexican-restaurant/)
+- [i want to start eating healthy but dont know where...](https://health.allwomenstalk.com/tips-for-getting-healthy-if-you-dont-know-where-to-start/)
+- [how to eat healthy at italian restaurant](https://food.allwomenstalk.com/ways-to-eat-healthfully-at-an-italian-restaurant/)
+- [how to have a healthy relationship with food and l...](https://diet.allwomenstalk.com/ways-to-foster-a-healthy-relationship-with-food/)
 - [10 Tricks for Eating Less ...](https://allwomenstalk.com/10-tricks-for-eating-less/)
 - [7 Simple Ways to Cut Calories ...](https://allwomenstalk.com/7-simple-ways-to-cut-calories/)
 

@@ -54,16 +54,16 @@ Embracing a new way of living is like learning to swim; it's normal to start wit
 
 ## Related Posts
 
-- [how can i avoid the freshman 15](https://weightloss.allwomenstalk.com/ways-to-avoid-the-freshman-15/)
-- [8 Tips on Dealing with a Picky Eater ...](https://parenting.allwomenstalk.com/tips-on-dealing-with-a-picky-eater/)
-- [buddy weight loss](https://diet.allwomenstalk.com/tips-for-choosing-a-diet-buddy/)
-- [eating five times a day](https://weightloss.allwomenstalk.com/how-to-eat-five-times-a-day/)
+- [counting calories tips](https://weightloss.allwomenstalk.com/tips-for-counting-calories/)
 - [8 Ways to Ensure Diet Success ...](https://diet.allwomenstalk.com/ways-to-ensure-diet-success/)
+- [how can i avoid the freshman 15](https://weightloss.allwomenstalk.com/ways-to-avoid-the-freshman-15/)
 - [8 Ways to Reward Yourself when on a Diet ...](https://weightloss.allwomenstalk.com/ways-to-reward-yourself-when-on-a-diet/)
+- [eating five times a day](https://weightloss.allwomenstalk.com/how-to-eat-five-times-a-day/)
 - [7 Things to Remember about Serving Sizes ...](https://diet.allwomenstalk.com/things-to-remember-about-serving-sizes/)
 - [7 Things to do if Youve Slipped off Your Diet ...](https://weightloss.allwomenstalk.com/things-to-do-if-youve-slipped-off-your-diet/)
+- [buddy weight loss](https://diet.allwomenstalk.com/tips-for-choosing-a-diet-buddy/)
+- [8 Tips on Dealing with a Picky Eater ...](https://parenting.allwomenstalk.com/tips-on-dealing-with-a-picky-eater/)
 - [7 Tips to Avoid Vacation Food Poisoning ...](https://travel.allwomenstalk.com/7-tips-to-avoid-vacation-food-poisoning/)
-- [counting calories tips](https://weightloss.allwomenstalk.com/tips-for-counting-calories/)
 - [7 Smart Steps to Making a Daily Diet ...](https://diet.allwomenstalk.com/smart-steps-to-making-a-daily-diet/)
 - [17 Healthy Eating Tips for Vegetarians ...](https://diet.allwomenstalk.com/healthy-eating-tips-for-vegetarians/)
 

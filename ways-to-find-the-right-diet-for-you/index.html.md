@@ -42,16 +42,16 @@ I personally think a whole foods diet from clean protein, plenty of fruits and v
 
 ## Related Posts
 
-- [9 Helpful Tips for Eating out While on a Diet ...](https://diet.allwomenstalk.com/delicious-tips-for-eating-out-while-on-a-diet/)
-- [7 Things to do While Recovering from an Eating Dis...](https://health.allwomenstalk.com/things-to-do-while-recovering-from-an-eating-disorder-to-help-you-heal/)
 - [7 Ways Fitness Can Make You Eat Healthier ...](https://fitness.allwomenstalk.com/ways-fitness-can-make-you-eat-healthier/)
-- [7 Ways to Improve Your Bone Health ...](https://health.allwomenstalk.com/ways-to-improve-your-bone-health/)
-- [7 Tips for Success when Eating out on a Diet ...](https://diet.allwomenstalk.com/tips-for-success-when-eating-out-on-a-diet/)
-- [7 Ways to Avoid Unwanted Calories Daily ...](https://diet.allwomenstalk.com/ways-to-avoid-unwanted-calories-daily/)
 - [7 Simple Strategies to Make Changes to Your Diet ....](https://diet.allwomenstalk.com/simple-strategies-to-make-changes-to-your-diet/)
-- [tips for eating dairy](https://diet.allwomenstalk.com/smart-tips-for-eating-dairy-if-youre-on-a-diet/)
-- [7 Smart Ways to Maximize Your Calories Each and Ev...](https://diet.allwomenstalk.com/smart-ways-to-maximize-your-calories-each-and-every-day/)
+- [7 Ways to Avoid Unwanted Calories Daily ...](https://diet.allwomenstalk.com/ways-to-avoid-unwanted-calories-daily/)
+- [7 Things to do While Recovering from an Eating Dis...](https://health.allwomenstalk.com/things-to-do-while-recovering-from-an-eating-disorder-to-help-you-heal/)
 - [sushi bloating](https://food.allwomenstalk.com/ways-to-make-sushi-healthier/)
+- [7 Smart Ways to Maximize Your Calories Each and Ev...](https://diet.allwomenstalk.com/smart-ways-to-maximize-your-calories-each-and-every-day/)
+- [7 Tips for Success when Eating out on a Diet ...](https://diet.allwomenstalk.com/tips-for-success-when-eating-out-on-a-diet/)
+- [tips for eating dairy](https://diet.allwomenstalk.com/smart-tips-for-eating-dairy-if-youre-on-a-diet/)
+- [9 Helpful Tips for Eating out While on a Diet ...](https://diet.allwomenstalk.com/delicious-tips-for-eating-out-while-on-a-diet/)
+- [7 Ways to Improve Your Bone Health ...](https://health.allwomenstalk.com/ways-to-improve-your-bone-health/)
 - [7 Tips for Choosing a Diet Buddy ...](https://diet.allwomenstalk.com/tips-for-choosing-a-diet-buddy/)
 - [11 Tips on How to Keep to Your Diet ...](https://allwomenstalk.com/tips-on-how-to-keep-to-your-diet/)
 

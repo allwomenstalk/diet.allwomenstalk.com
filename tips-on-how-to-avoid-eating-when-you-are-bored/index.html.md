@@ -46,16 +46,16 @@ If you are trying to avoid eating when you are feeling bored you could also avoi
 
 ## Related Posts
 
-- [Top Tips for a Happy Healthy Thanksgiving ...](https://diet.allwomenstalk.com/tips-for-making-thanksgiving-healthy/)
-- [7 Tips for Vegans Going to Christmas Parties ...](https://lifestyle.allwomenstalk.com/tips-for-vegans-going-to-christmas-parties/)
-- [7 Healthy Meal Ideas to Start off 2019 ...](https://food.allwomenstalk.com/healthy-meal-ideas-to-start-off/)
-- [cut down on calorie intake](https://weightloss.allwomenstalk.com/ways-to-reduce-your-calorie-intake-over-christmas/)
-- [7 Ways to Say No to Food Peer Pressure during the ...](https://diet.allwomenstalk.com/ways-to-say-no-to-food-peer-pressure-during-the-holidays/)
-- [7 Tips on Hosting a Healthy Holiday Party ...](https://health.allwomenstalk.com/tips-on-hosting-a-healthy-holiday-party/)
-- [7 Simple Ways to Prevent Food Poisoning ...](https://health.allwomenstalk.com/simple-ways-to-prevent-food-poisoning/)
 - [7 Healthy Spending Habits ...](https://money.allwomenstalk.com/healthy-spending-habits/)
-- [sticking to diet](https://diet.allwomenstalk.com/tips-for-sticking-to-your-diet-this-year/)
+- [7 Simple Ways to Prevent Food Poisoning ...](https://health.allwomenstalk.com/simple-ways-to-prevent-food-poisoning/)
+- [Top Tips for a Happy Healthy Thanksgiving ...](https://diet.allwomenstalk.com/tips-for-making-thanksgiving-healthy/)
+- [7 Healthy Meal Ideas to Start off 2019 ...](https://food.allwomenstalk.com/healthy-meal-ideas-to-start-off/)
+- [7 Tips for Vegans Going to Christmas Parties ...](https://lifestyle.allwomenstalk.com/tips-for-vegans-going-to-christmas-parties/)
+- [cut down on calorie intake](https://weightloss.allwomenstalk.com/ways-to-reduce-your-calorie-intake-over-christmas/)
+- [7 Tips on Hosting a Healthy Holiday Party ...](https://health.allwomenstalk.com/tips-on-hosting-a-healthy-holiday-party/)
+- [7 Ways to Say No to Food Peer Pressure during the ...](https://diet.allwomenstalk.com/ways-to-say-no-to-food-peer-pressure-during-the-holidays/)
 - [How to Prevent Overeating after Working out ...](https://diet.allwomenstalk.com/tips-to-prevent-overeating-after-working-out/)
+- [sticking to diet](https://diet.allwomenstalk.com/tips-for-sticking-to-your-diet-this-year/)
 - [7 Ways to Stop Snacking ...](https://health.allwomenstalk.com/7-ways-to-stop-snacking/)
 - [7 Ways to Curb Cravings ...](https://diet.allwomenstalk.com/ways-to-curb-cravings/)
 

@@ -42,16 +42,16 @@ Do you get too much salt? How will you cut back?
 
 ## Related Posts
 
-- [How to Boost Your Willpower for Eating Healthier ....](https://health.allwomenstalk.com/how-to-boost-your-willpower-for-eating-healthier/)
-- [10 Mindless Solutions to Kick the Habit of Mindles...](https://weightloss.allwomenstalk.com/mindless-solutions-to-your-mindless-eating-problem/)
-- [10 Awesome Ways to Eat Healthy for Girls with Mass...](https://diet.allwomenstalk.com/ways-to-eat-healthy-for-those-who-always-crave-carbs-and-sugar/)
-- [17 Diet and Exercise Hacks All Healthy Students Kn...](https://health.allwomenstalk.com/diet-and-exercise-hacks-all-healthy-students-know/)
-- [7 Ways to Make Your Breakfasts Healthier for You ....](https://health.allwomenstalk.com/ways-to-make-your-breakfasts-healthier-for-you/)
-- [How to Deal with Your Toughest Cravings  ...](https://diet.allwomenstalk.com/how-to-deal-with-your-toughest-cravings/)
-- [How to Follow the 8020 Rule and Live Healthier ...](https://health.allwomenstalk.com/how-to-follow-the-8020-philosophy-and-stay-healthy/)
 - [10 Ways to Stabilize Blood Sugar to Stay Healthy  ...](https://health.allwomenstalk.com/ways-to-stabilize-blood-sugar-to-stay-healthy/)
-- [Cut Calories by Eating These Foil Packet Meals Tod...](https://weightloss.allwomenstalk.com/cut-calories-by-eating-these-foil-packet-meals-today/)
+- [How to Boost Your Willpower for Eating Healthier ....](https://health.allwomenstalk.com/how-to-boost-your-willpower-for-eating-healthier/)
+- [10 Awesome Ways to Eat Healthy for Girls with Mass...](https://diet.allwomenstalk.com/ways-to-eat-healthy-for-those-who-always-crave-carbs-and-sugar/)
+- [How to Follow the 8020 Rule and Live Healthier ...](https://health.allwomenstalk.com/how-to-follow-the-8020-philosophy-and-stay-healthy/)
 - [How Every Woman Can Embrace Sustainable Eating ...](https://food.allwomenstalk.com/how-every-woman-can-embrace-sustainable-eating/)
+- [10 Mindless Solutions to Kick the Habit of Mindles...](https://weightloss.allwomenstalk.com/mindless-solutions-to-your-mindless-eating-problem/)
+- [17 Diet and Exercise Hacks All Healthy Students Kn...](https://health.allwomenstalk.com/diet-and-exercise-hacks-all-healthy-students-know/)
+- [How to Deal with Your Toughest Cravings  ...](https://diet.allwomenstalk.com/how-to-deal-with-your-toughest-cravings/)
+- [7 Ways to Make Your Breakfasts Healthier for You ....](https://health.allwomenstalk.com/ways-to-make-your-breakfasts-healthier-for-you/)
+- [Cut Calories by Eating These Foil Packet Meals Tod...](https://weightloss.allwomenstalk.com/cut-calories-by-eating-these-foil-packet-meals-today/)
 - [7 Inexpensive Tips to Improve Your Diet ...](https://diet.allwomenstalk.com/inexpensive-tips-to-improve-your-diet/)
 - [10 Ways to Reduce Calorie Intake ...](https://allwomenstalk.com/10-ways-to-reduce-calorie-intake/)
 

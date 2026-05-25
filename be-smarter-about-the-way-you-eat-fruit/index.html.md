@@ -112,16 +112,16 @@ Do you get enough fruit in your diet and are you smart in your choices and when 
 
 ## Related Posts
 
-- [How to Stay Healthy around Delish Thanksgiving Foo...](https://health.allwomenstalk.com/how-to-stay-healthy-this-thanksgiving/)
-- [How to Cut down on Sugar during the Holidays ...](https://diet.allwomenstalk.com/how-to-cut-down-on-sugar-during-the-holidays/)
-- [7 Ways to Eat Comfort Food without Gaining Weight ...](https://weightloss.allwomenstalk.com/ways-to-eat-comfort-food-without-gaining-weight/)
-- [Be Smarter  about the Way You Eat Carbs ...](https://diet.allwomenstalk.com/be-smarter-about-the-way-you-eat-carbs/)
-- [How to Stick to Your New Years Resolution of Eatin...](https://diet.allwomenstalk.com/how-to-stick-to-your-new-years-resolution-of-eating-more-healthily/)
-- [7 Dietary Rules You Dont Want to Forget ...](https://diet.allwomenstalk.com/dietary-rules-you-dont-want-to-forget/)
 - [Make These 7 Dietary Changes for Better Focus ...](https://diet.allwomenstalk.com/make-these-dietary-changes-for-better-focus/)
-- [These 7 Tips Will Help You Tackle Comfort Food Cra...](https://diet.allwomenstalk.com/these-tips-will-help-you-tackle-comfort-food-cravings/)
-- [Eat Healthier by Setting These New Years Resolutio...](https://diet.allwomenstalk.com/eat-healthier-by-setting-these-new-years-resolutions-for-yourself/)
+- [How to Cut down on Sugar during the Holidays ...](https://diet.allwomenstalk.com/how-to-cut-down-on-sugar-during-the-holidays/)
 - [7 Tips to Snack Smarter and Gain Less ...](https://food.allwomenstalk.com/tips-to-snack-smarter-and-gain-less/)
+- [7 Dietary Rules You Dont Want to Forget ...](https://diet.allwomenstalk.com/dietary-rules-you-dont-want-to-forget/)
+- [Eat Healthier by Setting These New Years Resolutio...](https://diet.allwomenstalk.com/eat-healthier-by-setting-these-new-years-resolutions-for-yourself/)
+- [These 7 Tips Will Help You Tackle Comfort Food Cra...](https://diet.allwomenstalk.com/these-tips-will-help-you-tackle-comfort-food-cravings/)
+- [Be Smarter  about the Way You Eat Carbs ...](https://diet.allwomenstalk.com/be-smarter-about-the-way-you-eat-carbs/)
+- [7 Ways to Eat Comfort Food without Gaining Weight ...](https://weightloss.allwomenstalk.com/ways-to-eat-comfort-food-without-gaining-weight/)
+- [How to Stay Healthy around Delish Thanksgiving Foo...](https://health.allwomenstalk.com/how-to-stay-healthy-this-thanksgiving/)
+- [How to Stick to Your New Years Resolution of Eatin...](https://diet.allwomenstalk.com/how-to-stick-to-your-new-years-resolution-of-eating-more-healthily/)
 - [10 Ways to Eat More Healthy ...](https://allwomenstalk.com/10-ways-to-eat-more-healthy/)
 - [8 Tips on How to Eat Healthier ...](https://diet.allwomenstalk.com/tips-on-how-to-eat-healthier/)
 

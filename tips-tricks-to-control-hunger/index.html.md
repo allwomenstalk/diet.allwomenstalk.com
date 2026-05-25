@@ -44,16 +44,16 @@ Exercise is one of the most powerful mind-altering activities on the planet. It 
 
 ## Related Posts
 
-- [Healthy Habits That Are Way Better than Crash Diet...](https://weightloss.allwomenstalk.com/healthy-habits-to-adopt-that-are-way-better-than-crash-diets/)
-- [Smaller Portions Are Better for Your Health Heres ...](https://diet.allwomenstalk.com/why-small-portions-are-better-for-your-health/)
-- [Daily Habits to Keep if You Want to Be Healthy ...](https://health.allwomenstalk.com/daily-habits-to-keep-if-you-want-to-be-healthy/)
-- [What You Need to Know about the Planetary Health D...](https://diet.allwomenstalk.com/what-you-need-to-know-about-the-planetary-health-diet/)
-- [can your body reject junk food](https://diet.allwomenstalk.com/ways-to-train-your-brain-to-reject-junk-food/)
-- [Perfect Ways to Keep Your Snacks Guilt Free ...](https://diet.allwomenstalk.com/perfect-ways-to-keep-your-snacks-guilt-free/)
-- [Optimizing Your Nutrition ...](https://diet.allwomenstalk.com/optimum-nutrition-for-everyday-living/)
-- [5 Simple Lifestyle Changes to Manage Your Diabetes...](https://allwomenstalk.com/lifestyle-changes-to-manage-your-diabetes/)
 - [How to Beat Your Sugar Cravings ...](https://diet.allwomenstalk.com/how-to-beat-your-sugar-cravings/)
 - [How to do a Food Detox the Right Way ...](https://diet.allwomenstalk.com/how-to-do-a-food-detox-the-right-way/)
+- [Smaller Portions Are Better for Your Health Heres ...](https://diet.allwomenstalk.com/why-small-portions-are-better-for-your-health/)
+- [Daily Habits to Keep if You Want to Be Healthy ...](https://health.allwomenstalk.com/daily-habits-to-keep-if-you-want-to-be-healthy/)
+- [Optimizing Your Nutrition ...](https://diet.allwomenstalk.com/optimum-nutrition-for-everyday-living/)
+- [What You Need to Know about the Planetary Health D...](https://diet.allwomenstalk.com/what-you-need-to-know-about-the-planetary-health-diet/)
+- [Healthy Habits That Are Way Better than Crash Diet...](https://weightloss.allwomenstalk.com/healthy-habits-to-adopt-that-are-way-better-than-crash-diets/)
+- [can your body reject junk food](https://diet.allwomenstalk.com/ways-to-train-your-brain-to-reject-junk-food/)
+- [Perfect Ways to Keep Your Snacks Guilt Free ...](https://diet.allwomenstalk.com/perfect-ways-to-keep-your-snacks-guilt-free/)
+- [5 Simple Lifestyle Changes to Manage Your Diabetes...](https://allwomenstalk.com/lifestyle-changes-to-manage-your-diabetes/)
 - [7 Ways to Control Your Cravings ...](https://cooking.allwomenstalk.com/7-ways-to-control-your-cravings/)
 - [15 Tips on How to Control Your Weight ...](https://allwomenstalk.com/15-tips-on-how-to-control-your-weight/)
 

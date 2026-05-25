@@ -50,16 +50,16 @@ What other healthy, low calorie beach snacks can you think of? I’m a huge fan 
 
 ## Related Posts
 
-- [non-dairy popsicle recipes](https://food.allwomenstalk.com/dairy-free-popsicle-recipes-to-beat-the-summer-heat/)
 - [what makes something a fruit](https://food.allwomenstalk.com/genius-ways-to-use-summer-fruit-to-make-something-tasty/)
 - [cinnamon stick necklace mosquito repellent](https://diy.allwomenstalk.com/smart-diys-to-get-you-through-the-rest-of-summer/)
-- [brighton tourist attractions](https://travel.allwomenstalk.com/fun-things-to-do-in-brighton-in-the-summer/)
 - [reconnect with friends](https://lifestyle.allwomenstalk.com/ways-to-reconnect-with-friends-after-the-summer-2/)
-- [things to do on vacation](https://travel.allwomenstalk.com/tips-on-how-to-spend-your-summer-vacation-at-home-without-getting-bored/)
-- [balloons tunes and bbq](https://lifestyle.allwomenstalk.com/tips-for-throwing-a-summer-bbq-that-is-awesome-in-every-way/)
 - [skinny salad](https://food.allwomenstalk.com/summer-salads-to-help-you-slim-down/)
-- [projects for summer](https://lifestyle.allwomenstalk.com/super-fun-projects-for-summer-to-pass-time-with/)
+- [things to do on vacation](https://travel.allwomenstalk.com/tips-on-how-to-spend-your-summer-vacation-at-home-without-getting-bored/)
 - [summer is come](https://lifestyle.allwomenstalk.com/reasons-why-you-shouldnt-be-upset-that-summer-is-coming-to-an-end/)
+- [brighton tourist attractions](https://travel.allwomenstalk.com/fun-things-to-do-in-brighton-in-the-summer/)
+- [balloons tunes and bbq](https://lifestyle.allwomenstalk.com/tips-for-throwing-a-summer-bbq-that-is-awesome-in-every-way/)
+- [projects for summer](https://lifestyle.allwomenstalk.com/super-fun-projects-for-summer-to-pass-time-with/)
+- [non-dairy popsicle recipes](https://food.allwomenstalk.com/dairy-free-popsicle-recipes-to-beat-the-summer-heat/)
 - [8 Great Summer Diet Snack Foods ...](https://diet.allwomenstalk.com/great-summer-diet-snack-foods/)
 - [7 Tasty  Healthy Snacks for Kids ...](https://health.allwomenstalk.com/tasty-healthy-snacks-for-kids/)
 

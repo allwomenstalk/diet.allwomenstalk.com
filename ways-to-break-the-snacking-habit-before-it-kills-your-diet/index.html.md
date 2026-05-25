@@ -42,16 +42,16 @@ Snacking isn’t always a terrible thing but it can be a bad habit if you are no
 
 ## Related Posts
 
-- [7 Sure Tricks to Beating the Sugar Habit ...](https://diet.allwomenstalk.com/sure-tricks-to-beating-the-sugar-habit/)
-- [7 Foolproof Tips That Will Help You Cut Portions a...](https://diet.allwomenstalk.com/foolproof-tips-that-will-help-you-cut-portions-and-feel-full/)
-- [7 Ways Fitness Can Make You Eat Healthier ...](https://fitness.allwomenstalk.com/ways-fitness-can-make-you-eat-healthier/)
-- [how can i stop snacking at night](https://diet.allwomenstalk.com/ways-to-avoid-snacking-at-night/)
-- [Helpful Ways to Find the Right Diet for You ...](https://diet.allwomenstalk.com/ways-to-find-the-right-diet-for-you/)
-- [7 Easy Ways to Cut Calories ...](https://diet.allwomenstalk.com/easy-ways-to-cut-calories/)
 - [9 Helpful Tips for Eating out While on a Diet ...](https://diet.allwomenstalk.com/delicious-tips-for-eating-out-while-on-a-diet/)
+- [7 Sure Tricks to Beating the Sugar Habit ...](https://diet.allwomenstalk.com/sure-tricks-to-beating-the-sugar-habit/)
+- [Helpful Ways to Find the Right Diet for You ...](https://diet.allwomenstalk.com/ways-to-find-the-right-diet-for-you/)
+- [7 Foolproof Tips That Will Help You Cut Portions a...](https://diet.allwomenstalk.com/foolproof-tips-that-will-help-you-cut-portions-and-feel-full/)
+- [7 Easy Ways to Cut Calories ...](https://diet.allwomenstalk.com/easy-ways-to-cut-calories/)
+- [9 Ways to Embrace Cultural Foods when Dieting ...](https://eatial.com/ways-to-embrace-cultural-foods-when-dieting/)
 - [7 Things to do While Recovering from an Eating Dis...](https://health.allwomenstalk.com/things-to-do-while-recovering-from-an-eating-disorder-to-help-you-heal/)
 - [Speak up about Your Eating Disorder and Get Help ....](https://health.allwomenstalk.com/reasons-to-speak-up-about-your-eating-disorder-and-get-help/)
-- [9 Ways to Embrace Cultural Foods when Dieting ...](https://eatial.com/ways-to-embrace-cultural-foods-when-dieting/)
+- [how can i stop snacking at night](https://diet.allwomenstalk.com/ways-to-avoid-snacking-at-night/)
+- [7 Ways Fitness Can Make You Eat Healthier ...](https://fitness.allwomenstalk.com/ways-fitness-can-make-you-eat-healthier/)
 - [7 Ways to Control Your Cravings ...](https://cooking.allwomenstalk.com/7-ways-to-control-your-cravings/)
 - [7 Ways to Stop Snacking ...](https://health.allwomenstalk.com/7-ways-to-stop-snacking/)
 

@@ -148,16 +148,16 @@ Which of these tips are you going to try tonight? What other ideas can you add?
 
 ## Related Posts
 
+- [food prep tips](https://food.allwomenstalk.com/professional-tips-for-making-healthy-food-prep-a-breeze/)
+- [healthiest snacks at movie theater](https://food.allwomenstalk.com/how-to-eat-healthy-at-the-movie-theater/)
 - [eat clean challenge](https://diet.allwomenstalk.com/heres-how-to-challenge-yourself-to-eat-clean/)
 - [ways to eat pizza](https://weightloss.allwomenstalk.com/tricks-to-consume-fewer-calories-when-eating-pizza/)
-- [healthiest snacks at movie theater](https://food.allwomenstalk.com/how-to-eat-healthy-at-the-movie-theater/)
-- [food prep tips](https://food.allwomenstalk.com/professional-tips-for-making-healthy-food-prep-a-breeze/)
-- [how to trick brain into feeling full](https://diet.allwomenstalk.com/ways-to-trick-your-brain-into-feeling-full/)
-- [spice up slim down](https://weightloss.allwomenstalk.com/ways-to-slim-down-your-shopping-cart/)
 - [clean eating casseroles](https://weightloss.allwomenstalk.com/low-calorie-casseroles-thatll-let-you-stick-to-your-diet/)
-- [alternative to calorie counting](https://weightloss.allwomenstalk.com/things-to-do-instead-of-counting-calories/)
+- [how to trick brain into feeling full](https://diet.allwomenstalk.com/ways-to-trick-your-brain-into-feeling-full/)
 - [i wait for you easy](https://food.allwomenstalk.com/wait-til-you-see-these-easy-hacks-to-make-your-food-healthier/)
 - [how to get your stomach to stop rumbling in class](https://health.allwomenstalk.com/how-to-stop-your-stomach-from-grumbling-in-quiet-places/)
+- [spice up slim down](https://weightloss.allwomenstalk.com/ways-to-slim-down-your-shopping-cart/)
+- [alternative to calorie counting](https://weightloss.allwomenstalk.com/things-to-do-instead-of-counting-calories/)
 - [8 Healthy Cooking Habits to Follow ...](https://cooking.allwomenstalk.com/8-healthy-cooking-habits-to-follow/)
 - [7 Shortcuts to Better Health ...](https://health.allwomenstalk.com/7-shortcuts-to-better-health/)
 

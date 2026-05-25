@@ -42,16 +42,16 @@ What do you indulge in? French fries are my indulgence. How do you keep it in mo
 
 ## Related Posts
 
-- [i will light candles this christmas](https://lifestyle.allwomenstalk.com/reasons-to-light-candles-more-often/)
-- [working out while on vacation](https://fitness.allwomenstalk.com/reasons-to-workout-while-on-vacation/)
-- [buying local art](https://lifestyle.allwomenstalk.com/reasons-to-buy-from-local-artists/)
-- [moving accross country](https://lifestyle.allwomenstalk.com/wonderful-reasons-to-move-across-the-country/)
 - [ted ed why you should read](https://lifestyle.allwomenstalk.com/reasons-why-you-should-watch-ted-talks-more-often/)
+- [buying local art](https://lifestyle.allwomenstalk.com/reasons-to-buy-from-local-artists/)
+- [should i babysit](https://parenting.allwomenstalk.com/reasons-you-should-babysit/)
+- [working out while on vacation](https://fitness.allwomenstalk.com/reasons-to-workout-while-on-vacation/)
+- [benefits of the library](https://books.allwomenstalk.com/benefits-of-going-to-your-local-libray/)
+- [i will light candles this christmas](https://lifestyle.allwomenstalk.com/reasons-to-light-candles-more-often/)
 - [is scouts good for my son](https://parenting.allwomenstalk.com/reasons-your-son-should-be-a-boy-scout/)
 - [festival sober](https://music.allwomenstalk.com/reasons-to-stay-sober-at-music-festivals/)
-- [benefits of the library](https://books.allwomenstalk.com/benefits-of-going-to-your-local-libray/)
 - [reasons to do pilates](https://fitness.allwomenstalk.com/convincing-reasons-to-do-pilates/)
-- [should i babysit](https://parenting.allwomenstalk.com/reasons-you-should-babysit/)
+- [moving accross country](https://lifestyle.allwomenstalk.com/wonderful-reasons-to-move-across-the-country/)
 - [8 Ways to Reward Yourself when on a Diet ...](https://weightloss.allwomenstalk.com/ways-to-reward-yourself-when-on-a-diet/)
 - [8 Times when Its OK to Cheat on Your Diet ...](https://diet.allwomenstalk.com/times-when-its-ok-to-cheat-on-your-diet/)
 

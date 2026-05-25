@@ -42,16 +42,16 @@ If you’ve had a terrible diet gimmick, let’s hear it! I want to hear what di
 
 ## Related Posts
 
-- [i keep binging at night](https://diet.allwomenstalk.com/reasons-you-cant-stop-binging-at-night/)
-- [is shawarma good for protein](https://food.allwomenstalk.com/foods-to-never-eat-after-your-workout/)
-- [why see a dietitian](https://health.allwomenstalk.com/important-reasons-to-see-a-dietitian/)
-- [calories in 1 tsp sugar](https://food.allwomenstalk.com/natural-sweeteners-that-make-you-gain-weight/)
-- [why dieting doesnt work](https://diet.allwomenstalk.com/reasons-dieting-doesnt-work-for-most-people/)
 - [french women dont get fat](https://weightloss.allwomenstalk.com/reasons-french-women-dont-get-fat/)
+- [is shawarma good for protein](https://food.allwomenstalk.com/foods-to-never-eat-after-your-workout/)
+- [why dieting doesnt work](https://diet.allwomenstalk.com/reasons-dieting-doesnt-work-for-most-people/)
 - [preparing food in advance](https://weightloss.allwomenstalk.com/reasons-why-preparing-meals-in-advance-is-effective-for-weight-loss/)
 - [smoothies bad for weight loss](https://food.allwomenstalk.com/things-to-never-put-in-your-green-smoothie-for-weight-loss/)
-- [worst coffee](https://diet.allwomenstalk.com/worst-things-to-order-at-coffee-shops-for-your-weight/)
 - [bingeing on](https://health.allwomenstalk.com/symptoms-of-binging-that-often-go-overlooked/)
+- [worst coffee](https://diet.allwomenstalk.com/worst-things-to-order-at-coffee-shops-for-your-weight/)
+- [i keep binging at night](https://diet.allwomenstalk.com/reasons-you-cant-stop-binging-at-night/)
+- [calories in 1 tsp sugar](https://food.allwomenstalk.com/natural-sweeteners-that-make-you-gain-weight/)
+- [why see a dietitian](https://health.allwomenstalk.com/important-reasons-to-see-a-dietitian/)
 - [Weight Loss Truths ...](https://allwomenstalk.com/weight-loss-truths/)
 - [Top 3 Dieting Mistakes to Avoid ...](https://allwomenstalk.com/dont-do-it-top-3-dieting-mistakes-to-avoid/)
 

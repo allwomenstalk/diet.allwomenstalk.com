@@ -42,16 +42,16 @@ Do you use sugar substitutes? Which ones do you use most often?
 
 ## Related Posts
 
-- [fitgirls](https://diet.allwomenstalk.com/the-ultimate-grocery-guide-for-fit-girls/)
-- [dirty hangover food](https://food.allwomenstalk.com/the-best-foods-to-nurse-a-nasty-hangover/)
-- [best meat for protein](https://food.allwomenstalk.com/these-meat-alternatives-will-lower-your-calorie-intake/)
-- [energy-giving foods](https://food.allwomenstalk.com/energizing-meals-thatll-give-you-the-boost-you-need/)
-- [top superfoods for 2017](https://food.allwomenstalk.com/the-top-superfoods-for/)
 - [can bananas bloat you](https://food.allwomenstalk.com/these-healthy-foods-will-fight-your-belly-bloat/)
 - [snacks to eat on the go](https://food.allwomenstalk.com/clean-eating-snacks-you-can-always-eat-on-the-go/)
 - [low claorie meals](https://food.allwomenstalk.com/low-calorie-comfort-food-to-fill-you-up-but-not-out/)
-- [ensalada caliente](https://food.allwomenstalk.com/the-best-hot-salads-thatll-fill-you-right-up/)
+- [energy-giving foods](https://food.allwomenstalk.com/energizing-meals-thatll-give-you-the-boost-you-need/)
 - [is granola good for gaining weight](https://food.allwomenstalk.com/foods-to-eat-when-you-want-to-gain-healthy-weight/)
+- [dirty hangover food](https://food.allwomenstalk.com/the-best-foods-to-nurse-a-nasty-hangover/)
+- [best meat for protein](https://food.allwomenstalk.com/these-meat-alternatives-will-lower-your-calorie-intake/)
+- [ensalada caliente](https://food.allwomenstalk.com/the-best-hot-salads-thatll-fill-you-right-up/)
+- [fitgirls](https://diet.allwomenstalk.com/the-ultimate-grocery-guide-for-fit-girls/)
+- [top superfoods for 2017](https://food.allwomenstalk.com/the-top-superfoods-for/)
 - [7 Popular Sugar Myths Busted...Your Body Will Than...](https://allwomenstalk.com/7-popular-sugar-myths-busted-your-body-will-thank-you/)
 - [20 Healthy Ways to Satisfy Your Sweet Tooth ...](https://diet.allwomenstalk.com/healthy-ways-to-satisfy-your-sweet-tooth/)
 

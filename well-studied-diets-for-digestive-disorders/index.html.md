@@ -42,13 +42,13 @@ If you have a digestive complaint and found a diet that has helped you, I’d lo
 
 ## Related Posts
 
-- [surprisingly healthy foods](https://food.allwomenstalk.com/healthy-foods-that-will-surprise-you/)
-- [7 Foods That Boost Memory and Improve Cognitive Ab...](https://food.allwomenstalk.com/foods-that-boost-memory-and-improve-cognitive-abilities/)
-- [macrobiotic sea salt](https://food.allwomenstalk.com/fundamental-aspects-about-the-macrobiotic-food-pyramid/)
-- [7 Vegetables to Toss in Your Salad That You Might ...](https://food.allwomenstalk.com/vegetables-to-toss-in-your-salad-that-youve-never-thought-of/)
-- [7 Foods That Are Unsafe for Babies ...](https://food.allwomenstalk.com/foods-that-are-unsafe-for-babies/)
-- [when choosing cereal make sure each serving](https://food.allwomenstalk.com/rules-for-choosing-a-healthy-cereal/)
 - [8 Seemingly Healthy Foods That Are Bad for You ...](https://food.allwomenstalk.com/seemingly-healthy-foods-that-are-bad-for-you/)
+- [7 Vegetables to Toss in Your Salad That You Might ...](https://food.allwomenstalk.com/vegetables-to-toss-in-your-salad-that-youve-never-thought-of/)
+- [7 Foods That Boost Memory and Improve Cognitive Ab...](https://food.allwomenstalk.com/foods-that-boost-memory-and-improve-cognitive-abilities/)
+- [7 Foods That Are Unsafe for Babies ...](https://food.allwomenstalk.com/foods-that-are-unsafe-for-babies/)
+- [macrobiotic sea salt](https://food.allwomenstalk.com/fundamental-aspects-about-the-macrobiotic-food-pyramid/)
+- [when choosing cereal make sure each serving](https://food.allwomenstalk.com/rules-for-choosing-a-healthy-cereal/)
+- [surprisingly healthy foods](https://food.allwomenstalk.com/healthy-foods-that-will-surprise-you/)
 - [7 Foods for Bad Moods That Work like Magic ...](https://food.allwomenstalk.com/foods-for-bad-moods-that-work-like-magic/)
 - [7 Foods That Make You Happy That You Should Defini...](https://food.allwomenstalk.com/foods-that-make-you-happy-that-you-should-definitely-add-to-your-diet/)
 - [7 Super Foods for Weight Loss and Better Health .....](https://food.allwomenstalk.com/super-foods-for-weight-loss-and-better-health/)

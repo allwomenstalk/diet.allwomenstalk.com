@@ -42,16 +42,16 @@ So fit girl now that you have a guide to grocery shop the healthy way, head to t
 
 ## Related Posts
 
-- [does starch cause weight gain](https://food.allwomenstalk.com/this-is-how-sprouted-grains-can-make-you-healthier-and-slimmer/)
-- [best meat for protein](https://food.allwomenstalk.com/these-meat-alternatives-will-lower-your-calorie-intake/)
+- [ensalada caliente](https://food.allwomenstalk.com/the-best-hot-salads-thatll-fill-you-right-up/)
 - [top superfoods for 2017](https://food.allwomenstalk.com/the-top-superfoods-for/)
-- [can bananas bloat you](https://food.allwomenstalk.com/these-healthy-foods-will-fight-your-belly-bloat/)
 - [energy-giving foods](https://food.allwomenstalk.com/energizing-meals-thatll-give-you-the-boost-you-need/)
+- [bitter veggies](https://food.allwomenstalk.com/bitter-veggies-are-even-better-for-you-than-you-think/)
+- [can bananas bloat you](https://food.allwomenstalk.com/these-healthy-foods-will-fight-your-belly-bloat/)
 - [is granola good for gaining weight](https://food.allwomenstalk.com/foods-to-eat-when-you-want-to-gain-healthy-weight/)
+- [best meat for protein](https://food.allwomenstalk.com/these-meat-alternatives-will-lower-your-calorie-intake/)
+- [does starch cause weight gain](https://food.allwomenstalk.com/this-is-how-sprouted-grains-can-make-you-healthier-and-slimmer/)
 - [snacks to eat on the go](https://food.allwomenstalk.com/clean-eating-snacks-you-can-always-eat-on-the-go/)
 - [adopt perfume vanilla](https://food.allwomenstalk.com/these-clean-eating-snacks-will-help-you-get-healthier/)
-- [ensalada caliente](https://food.allwomenstalk.com/the-best-hot-salads-thatll-fill-you-right-up/)
-- [bitter veggies](https://food.allwomenstalk.com/bitter-veggies-are-even-better-for-you-than-you-think/)
 - [Life Changing Books for Girls Trying to Lose Weigh...](https://books.allwomenstalk.com/inspiring-weight-loss-books-to-get-you-well-inspired/)
 - [Superfoods for Girls Who Need an Instant Productiv...](https://food.allwomenstalk.com/chow-down-on-these-superfoods-to-increase-productivity/)
 

@@ -42,16 +42,16 @@ Chocolate is something I just have to have in my diet but I want to do it in the
 
 ## Related Posts
 
+- [9 Diet Choices to Make if You Suffer from High Blo...](https://food.allwomenstalk.com/diet-choices-to-make-if-you-suffer-high-blood-pressure/)
+- [new year health tips](https://health.allwomenstalk.com/health-tips-for-the-new-year/)
 - [7 Important Reasons to Improve Your Diet and Eatin...](https://diet.allwomenstalk.com/important-reasons-to-improve-your-diet-and-eating-habits/)
-- [7 Ways to Eat Healthy when You Are Too Tired to Co...](https://health.allwomenstalk.com/ways-to-eat-healthy-when-your-are-too-tired-to-cook/)
-- [eating at a wedding...](https://food.allwomenstalk.com/tips-on-eating-healthy-at-weddings-that-work/)
 - [7 Tips for Cooking Healthier in the New Year ...](https://food.allwomenstalk.com/tips-for-cooking-healthier-in-the-new-year/)
 - [11 Ways to Know if Your Diet is Healthy or Not ...](https://diet.allwomenstalk.com/ways-to-know-if-your-diet-is-healthy-or-not/)
-- [9 Diet Choices to Make if You Suffer from High Blo...](https://food.allwomenstalk.com/diet-choices-to-make-if-you-suffer-high-blood-pressure/)
+- [eating at a wedding...](https://food.allwomenstalk.com/tips-on-eating-healthy-at-weddings-that-work/)
 - [avoiding negativity](https://diet.allwomenstalk.com/tips-for-avoiding-negativity-from-your-friends-about-your-diet/)
 - [7 Simple Ways to Reboot Your Eating Habits for a H...](https://health.allwomenstalk.com/simple-ways-to-reboot-your-eating-habits-for-a-healthier-you/)
-- [new year health tips](https://health.allwomenstalk.com/health-tips-for-the-new-year/)
 - [7 Ways to Get Involved for National Eating Disorde...](https://health.allwomenstalk.com/ways-to-get-involved-for-national-eating-disorder-awareness-week/)
+- [7 Ways to Eat Healthy when You Are Too Tired to Co...](https://health.allwomenstalk.com/ways-to-eat-healthy-when-your-are-too-tired-to-cook/)
 - [7 Simple Ways to Improve Your Diet without Deprivi...](https://allwomenstalk.com/7-simple-ways-to-improve-your-diet-without-depriving-yourself/)
 - [7 Reasons Chocolate is Good for You ...](https://allwomenstalk.com/7-reasons-chocolate-is-good-for-you/)
 

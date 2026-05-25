@@ -51,16 +51,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/14276199)
 
 ## Related Posts
 
-- [weirdest foods ever](https://cooking.allwomenstalk.com/7-really-weird-foods-from-the-sea/)
-- [superfood synergy](https://diet.allwomenstalk.com/super-food-synergy-secrets/)
 - [spicy food to eat](https://cooking.allwomenstalk.com/top-8-spicy-food-you-can-eat/)
-- [blueberries or blackberries healthier](https://food.allwomenstalk.com/wonderfully-healthy-berries-to-introduce-to-your-diet/)
-- [gift for a health nut](https://food.allwomenstalk.com/delicious-dishes-for-the-wannabe-health-nut/)
 - [smart food ideas](https://cooking.allwomenstalk.com/quick-smart-foods/)
-- [7 Healthy Snacks That Are Not so Healthy ...](https://diet.allwomenstalk.com/7-healthy-snacks-that-are-not-so-healthy/)
-- [fruit with least calories](https://diet.allwomenstalk.com/wonderfully-delicious-fruits-with-least-calories/)
 - [20 Healthiest Diet Foods for You ...](https://eatial.com/healthiest-diet-foods-for-you/)
+- [fruit with least calories](https://diet.allwomenstalk.com/wonderfully-delicious-fruits-with-least-calories/)
+- [weirdest foods ever](https://cooking.allwomenstalk.com/7-really-weird-foods-from-the-sea/)
+- [7 Healthy Snacks That Are Not so Healthy ...](https://diet.allwomenstalk.com/7-healthy-snacks-that-are-not-so-healthy/)
+- [gift for a health nut](https://food.allwomenstalk.com/delicious-dishes-for-the-wannabe-health-nut/)
+- [superfood synergy](https://diet.allwomenstalk.com/super-food-synergy-secrets/)
 - [vending machines healthy options](https://cooking.allwomenstalk.com/healthy-vending-machine-snacks/)
+- [blueberries or blackberries healthier](https://food.allwomenstalk.com/wonderfully-healthy-berries-to-introduce-to-your-diet/)
 - [7 Healthy Side Dishes to Try Today ...](https://health.allwomenstalk.com/7-healthy-side-dishes-to-try-today/)
 - [6 Tips for Making Healthy Salads ...](https://allwomenstalk.com/6-tips-for-making-healthy-salads/)
 

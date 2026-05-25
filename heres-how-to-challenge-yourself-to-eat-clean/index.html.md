@@ -56,16 +56,16 @@ Are you trying to eat clean? What tips can you add?
 
 ## Related Posts
 
-- [ways to eat pizza](https://weightloss.allwomenstalk.com/tricks-to-consume-fewer-calories-when-eating-pizza/)
-- [food prep tips](https://food.allwomenstalk.com/professional-tips-for-making-healthy-food-prep-a-breeze/)
-- [hangover spaghetti](https://diet.allwomenstalk.com/fool-proof-ways-to-deal-when-suffering-from-a-food-hangover/)
+- [spice up slim down](https://weightloss.allwomenstalk.com/ways-to-slim-down-your-shopping-cart/)
 - [how to kick food addiction](https://diet.allwomenstalk.com/how-to-help-stop-your-junk-food-addiction/)
 - [what is the messiest food to eat](https://food.allwomenstalk.com/best-ways-to-eat-messy-foods/)
+- [clean eating casseroles](https://weightloss.allwomenstalk.com/low-calorie-casseroles-thatll-let-you-stick-to-your-diet/)
 - [eatright meal prep](https://food.allwomenstalk.com/meal-prep-ideas-to-help-you-eat-right-all-week-long/)
 - [healthiest snacks at movie theater](https://food.allwomenstalk.com/how-to-eat-healthy-at-the-movie-theater/)
-- [clean eating casseroles](https://weightloss.allwomenstalk.com/low-calorie-casseroles-thatll-let-you-stick-to-your-diet/)
-- [spice up slim down](https://weightloss.allwomenstalk.com/ways-to-slim-down-your-shopping-cart/)
 - [alternative to calorie counting](https://weightloss.allwomenstalk.com/things-to-do-instead-of-counting-calories/)
+- [food prep tips](https://food.allwomenstalk.com/professional-tips-for-making-healthy-food-prep-a-breeze/)
+- [hangover spaghetti](https://diet.allwomenstalk.com/fool-proof-ways-to-deal-when-suffering-from-a-food-hangover/)
+- [ways to eat pizza](https://weightloss.allwomenstalk.com/tricks-to-consume-fewer-calories-when-eating-pizza/)
 - [10 Things to Know about Eating Clean ...](https://eatial.com/things-to-know-about-eating-clean/)
 - [8 Important Reasons Why Everyone Should Eat Clean ...](https://health.allwomenstalk.com/reasons-i-eat-clean/)
 

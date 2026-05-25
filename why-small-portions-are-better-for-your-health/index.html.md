@@ -56,16 +56,16 @@ When you think about food as fuel, you will find it much easier to keep your sma
 
 ## Related Posts
 
-- [5 Simple Lifestyle Changes to Manage Your Diabetes...](https://allwomenstalk.com/lifestyle-changes-to-manage-your-diabetes/)
-- [can your body reject junk food](https://diet.allwomenstalk.com/ways-to-train-your-brain-to-reject-junk-food/)
-- [Optimizing Your Nutrition ...](https://diet.allwomenstalk.com/optimum-nutrition-for-everyday-living/)
-- [What You Need to Know about the Planetary Health D...](https://diet.allwomenstalk.com/what-you-need-to-know-about-the-planetary-health-diet/)
-- [How to do a Food Detox the Right Way ...](https://diet.allwomenstalk.com/how-to-do-a-food-detox-the-right-way/)
-- [How to Keep Your Heart Healthy ...](https://allwomenstalk.com/how-to-keep-your-heart-healthy/)
-- [Healthy Habits That Are Way Better than Crash Diet...](https://weightloss.allwomenstalk.com/healthy-habits-to-adopt-that-are-way-better-than-crash-diets/)
-- [Daily Habits to Keep if You Want to Be Healthy ...](https://health.allwomenstalk.com/daily-habits-to-keep-if-you-want-to-be-healthy/)
-- [6 Simple Tips That Will Make Your Keto Diet More E...](https://allwomenstalk.com/make-your-keto-diet-more-effective/)
 - [How to Beat Your Sugar Cravings ...](https://diet.allwomenstalk.com/how-to-beat-your-sugar-cravings/)
+- [Daily Habits to Keep if You Want to Be Healthy ...](https://health.allwomenstalk.com/daily-habits-to-keep-if-you-want-to-be-healthy/)
+- [Optimizing Your Nutrition ...](https://diet.allwomenstalk.com/optimum-nutrition-for-everyday-living/)
+- [can your body reject junk food](https://diet.allwomenstalk.com/ways-to-train-your-brain-to-reject-junk-food/)
+- [5 Simple Lifestyle Changes to Manage Your Diabetes...](https://allwomenstalk.com/lifestyle-changes-to-manage-your-diabetes/)
+- [Healthy Habits That Are Way Better than Crash Diet...](https://weightloss.allwomenstalk.com/healthy-habits-to-adopt-that-are-way-better-than-crash-diets/)
+- [How to do a Food Detox the Right Way ...](https://diet.allwomenstalk.com/how-to-do-a-food-detox-the-right-way/)
+- [What You Need to Know about the Planetary Health D...](https://diet.allwomenstalk.com/what-you-need-to-know-about-the-planetary-health-diet/)
+- [6 Simple Tips That Will Make Your Keto Diet More E...](https://allwomenstalk.com/make-your-keto-diet-more-effective/)
+- [How to Keep Your Heart Healthy ...](https://allwomenstalk.com/how-to-keep-your-heart-healthy/)
 - [7 Reasons Why Cookies Are Good for You ...](https://allwomenstalk.com/7-reasons-why-cookies-are-good-for-you/)
 - [8 Reasons to Eat More Vegetables ...](https://allwomenstalk.com/8-reasons-to-eat-more-vegetables/)
 

@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/23859378)
 
 ## Related Posts
 
-- [9 Simple Ways to Eat More Vegetables ...](https://food.allwomenstalk.com/simple-ways-to-eat-more-vegetables/)
-- [8 Smart Points to Remember when Choosing a Diet .....](https://diet.allwomenstalk.com/smart-points-to-remember-when-choosing-a-diet/)
-- [21 Healthy Ways to Eat Less ...](https://vityle.com/healthy-ways-to-eat-less/)
-- [9 Simple Pointers on How to Eat Healthy ...](https://diet.allwomenstalk.com/simple-pointers-on-how-to-eat-healthy/)
-- [7 Smart Dieting Tips for Travel ...](https://diet.allwomenstalk.com/smart-dieting-tips-for-travel/)
-- [20 Ways to Gain Weight Healthily ...](https://health.allwomenstalk.com/ways-to-gain-weight-healthily/)
 - [how to eat more leafy greens](https://diet.allwomenstalk.com/ways-to-eat-more-leafy-greens/)
+- [7 Smart Dieting Tips for Travel ...](https://diet.allwomenstalk.com/smart-dieting-tips-for-travel/)
+- [8 Smart Points to Remember when Choosing a Diet .....](https://diet.allwomenstalk.com/smart-points-to-remember-when-choosing-a-diet/)
+- [20 Ways to Gain Weight Healthily ...](https://health.allwomenstalk.com/ways-to-gain-weight-healthily/)
+- [9 Simple Pointers on How to Eat Healthy ...](https://diet.allwomenstalk.com/simple-pointers-on-how-to-eat-healthy/)
 - [22 Grocery Shopping Tips for Healthy Eating ...](https://eatial.com/grocery-shopping-tips-for-healthy-eating/)
-- [7 Great Tips on How to Eat More Protein ...](https://diet.allwomenstalk.com/great-tips-on-how-to-eat-more-protein/)
+- [21 Healthy Ways to Eat Less ...](https://vityle.com/healthy-ways-to-eat-less/)
+- [9 Simple Ways to Eat More Vegetables ...](https://food.allwomenstalk.com/simple-ways-to-eat-more-vegetables/)
 - [8 Steps to Eating Ethically ...](https://food.allwomenstalk.com/steps-to-eating-ethically/)
+- [7 Great Tips on How to Eat More Protein ...](https://diet.allwomenstalk.com/great-tips-on-how-to-eat-more-protein/)
 - [7 Inexpensive Tips to Improve Your Diet ...](https://diet.allwomenstalk.com/inexpensive-tips-to-improve-your-diet/)
 - [7 Tips on Eating Well ...](https://allwomenstalk.com/7-tips-on-eating-well/)
 

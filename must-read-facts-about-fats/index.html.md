@@ -56,16 +56,16 @@ Top Image Source: _vogue.it_
 
 ## Related Posts
 
-- [intresting fact about japan](https://travel.allwomenstalk.com/interesting-facts-about-japan/)
-- [7 Important Facts about Alcohol ...](https://health.allwomenstalk.com/important-facts-about-alcohol/)
-- [20 Bizarre and Interesting Facts ...](https://lifestyle.allwomenstalk.com/bizarre-and-interesting-facts/)
-- [facts about stress](https://health.allwomenstalk.com/facts-about-stress/)
 - [5 facts about chinas geography](https://travel.allwomenstalk.com/geographical-facts-of-china/)
-- [geographical facts about africa](https://travel.allwomenstalk.com/geographical-facts-of-africa/)
-- [8 Eye Opening Facts to Help You Quit Smoking ...](https://health.allwomenstalk.com/eye-opening-facts-to-help-you-quit-smoking/)
+- [intresting fact about japan](https://travel.allwomenstalk.com/interesting-facts-about-japan/)
+- [facts about stress](https://health.allwomenstalk.com/facts-about-stress/)
+- [20 Bizarre and Interesting Facts ...](https://lifestyle.allwomenstalk.com/bizarre-and-interesting-facts/)
 - [which of the following is not one of the four pill...](https://travel.allwomenstalk.com/facts-about-the-moon/)
-- [facts on pediatric cancer](https://parenting.allwomenstalk.com/facts-about-pediatric-cancer/)
+- [7 Important Facts about Alcohol ...](https://health.allwomenstalk.com/important-facts-about-alcohol/)
+- [8 Eye Opening Facts to Help You Quit Smoking ...](https://health.allwomenstalk.com/eye-opening-facts-to-help-you-quit-smoking/)
+- [geographical facts about africa](https://travel.allwomenstalk.com/geographical-facts-of-africa/)
 - [8 Fun Facts about Chocolate ...](https://eatial.com/fun-facts-about-chocolate/)
+- [facts on pediatric cancer](https://parenting.allwomenstalk.com/facts-about-pediatric-cancer/)
 - [10 Surprising Foods That Help with Weight Loss ...](https://weightloss.allwomenstalk.com/surprising-foods-that-help-with-weight-loss/)
 - [10 Ways to Avoid Obesity ...](https://allwomenstalk.com/10-ways-to-avoid-obesity/)
 

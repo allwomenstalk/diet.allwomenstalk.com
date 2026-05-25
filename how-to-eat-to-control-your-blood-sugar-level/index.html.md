@@ -76,16 +76,16 @@ Consider [sugar alternatives](https://food.allwomenstalk.com/natural-sweeteners-
 
 ## Related Posts
 
-- [maintaining water balance](https://health.allwomenstalk.com/how-to-maintain-body-water-balance-throughout-the-day/)
-- [Healthy Ways to Indulge Your Sweet Tooth without B...](https://food.allwomenstalk.com/healthy-ways-to-indulge-your-sweet-tooth/)
-- [healthiest cheeses to eat](https://food.allwomenstalk.com/healthy-ways-to-eat-cheese/)
-- [stay healthy while you party](https://health.allwomenstalk.com/how-to-stay-healthy-during-party-season/)
 - [diet plan for family](https://diet.allwomenstalk.com/exceptional-ways-to-develop-a-healthy-eating-plan-for-the-whole-family/)
-- [how to lose weight for busy students](https://diet.allwomenstalk.com/how-to-eat-a-balanced-diet-for-busy-students/)
-- [8 Easy Tips to Improve Your Meals and Eat Healthie...](https://diet.allwomenstalk.com/easy-tips-to-improve-your-meals-and-eat-healthier/)
-- [cant resist sweets](https://diet.allwomenstalk.com/ways-to-resist-sweets/)
+- [healthiest cheeses to eat](https://food.allwomenstalk.com/healthy-ways-to-eat-cheese/)
 - [track their parmesans by microchips](https://food.allwomenstalk.com/healthy-chip-recipes/)
+- [cant resist sweets](https://diet.allwomenstalk.com/ways-to-resist-sweets/)
+- [stay healthy while you party](https://health.allwomenstalk.com/how-to-stay-healthy-during-party-season/)
 - [how to eat when broke](https://food.allwomenstalk.com/how-to-eat-on-a-dollar-a-day-for-broke-girls/)
+- [how to lose weight for busy students](https://diet.allwomenstalk.com/how-to-eat-a-balanced-diet-for-busy-students/)
+- [maintaining water balance](https://health.allwomenstalk.com/how-to-maintain-body-water-balance-throughout-the-day/)
+- [8 Easy Tips to Improve Your Meals and Eat Healthie...](https://diet.allwomenstalk.com/easy-tips-to-improve-your-meals-and-eat-healthier/)
+- [Healthy Ways to Indulge Your Sweet Tooth without B...](https://food.allwomenstalk.com/healthy-ways-to-indulge-your-sweet-tooth/)
 - [7 Ways to Control Your Cravings ...](https://cooking.allwomenstalk.com/7-ways-to-control-your-cravings/)
 - [7 Tips for Avoiding Diabetes ...](https://health.allwomenstalk.com/7-tips-for-avoiding-diabetes/)
 

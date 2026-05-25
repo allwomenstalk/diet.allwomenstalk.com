@@ -54,16 +54,16 @@ As a special treat, go ahead and indulge. Or just do it anyway but work it off! 
 
 ## Related Posts
 
-- [These 7 Things Will Make Your PMS Even Worse ...](https://health.allwomenstalk.com/these-things-will-make-your-pms-even-worse/)
-- [should love be earned](https://love.allwomenstalk.com/things-you-shouldnt-have-to-do-to-earn-his-love/)
-- [Stop Doing These Things That Make You Look Less Cl...](https://fashion.allwomenstalk.com/stop-doing-these-things-that-make-you-look-less-classy/)
-- [7 Hurtful Things That Can Lead to Cheating ...](https://love.allwomenstalk.com/hurtful-things-that-can-lead-to-cheating/)
-- [7 Expectations You Shouldnt Set for Your BF ...](https://love.allwomenstalk.com/expectations-you-shouldnt-set-for-your-bf/)
-- [7 Things Your BF Will Never do if He Really Wants ...](https://love.allwomenstalk.com/things-you-need-to-believe-your-bf-would-never-do/)
-- [Self-Respecting Women Will Never Deal with THESE ....](https://love.allwomenstalk.com/things-no-self-respecting-woman-should-put-up-with/)
 - [Never Write These Things in a Professional Email ....](https://lifestyle.allwomenstalk.com/never-write-these-things-in-a-professional-email/)
 - [Never do These Things to Try and Impress a Man ...](https://love.allwomenstalk.com/never-do-these-things-to-impress-a-man/)
+- [These 7 Things Will Make Your PMS Even Worse ...](https://health.allwomenstalk.com/these-things-will-make-your-pms-even-worse/)
+- [should love be earned](https://love.allwomenstalk.com/things-you-shouldnt-have-to-do-to-earn-his-love/)
+- [7 Things Your BF Will Never do if He Really Wants ...](https://love.allwomenstalk.com/things-you-need-to-believe-your-bf-would-never-do/)
+- [7 Expectations You Shouldnt Set for Your BF ...](https://love.allwomenstalk.com/expectations-you-shouldnt-set-for-your-bf/)
 - [7 Things to Avoid when Youre on Your Period ...](https://health.allwomenstalk.com/things-to-avoid-when-youre-on-your-period/)
+- [7 Hurtful Things That Can Lead to Cheating ...](https://love.allwomenstalk.com/hurtful-things-that-can-lead-to-cheating/)
+- [Stop Doing These Things That Make You Look Less Cl...](https://fashion.allwomenstalk.com/stop-doing-these-things-that-make-you-look-less-classy/)
+- [Self-Respecting Women Will Never Deal with THESE ....](https://love.allwomenstalk.com/things-no-self-respecting-woman-should-put-up-with/)
 - [7 Tips to Avoid Vacation Food Poisoning ...](https://travel.allwomenstalk.com/7-tips-to-avoid-vacation-food-poisoning/)
 - [8 Wonderfully Delightful Low Calorie Fast Food Cho...](https://diet.allwomenstalk.com/wonderfully-delightful-low-calorie-fast-food-choices/)
 

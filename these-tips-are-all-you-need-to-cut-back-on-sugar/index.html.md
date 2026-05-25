@@ -42,16 +42,16 @@ Do you get too much sugar? Most of us do. What changes are you going to make so 
 
 ## Related Posts
 
-- [7 Dietary Rules You Dont Want to Forget ...](https://diet.allwomenstalk.com/dietary-rules-you-dont-want-to-forget/)
-- [7 Fab Activities to Try Instead of Stress Eating ....](https://diet.allwomenstalk.com/stop-stress-eating-by-doing-these-activities-instead/)
-- [Be Smarter  about the Way You Eat Carbs ...](https://diet.allwomenstalk.com/be-smarter-about-the-way-you-eat-carbs/)
-- [Make These 7 Dietary Changes for Better Focus ...](https://diet.allwomenstalk.com/make-these-dietary-changes-for-better-focus/)
-- [How to Stay Healthy around Delish Thanksgiving Foo...](https://health.allwomenstalk.com/how-to-stay-healthy-this-thanksgiving/)
-- [Be Smarter about the Way You Eat Sugar ...](https://diet.allwomenstalk.com/be-smarter-about-the-way-you-eat-sugar/)
 - [how many calories does dabbing grease off pizza sa...](https://food.allwomenstalk.com/the-trick-to-eating-pizza-without-consuming-too-many-calories/)
-- [7 Ways to Eat Comfort Food without Gaining Weight ...](https://weightloss.allwomenstalk.com/ways-to-eat-comfort-food-without-gaining-weight/)
-- [How to Cut down on Sugar during the Holidays ...](https://diet.allwomenstalk.com/how-to-cut-down-on-sugar-during-the-holidays/)
 - [eat fruit gif](https://diet.allwomenstalk.com/be-smarter-about-the-way-you-eat-fruit/)
+- [Be Smarter about the Way You Eat Sugar ...](https://diet.allwomenstalk.com/be-smarter-about-the-way-you-eat-sugar/)
+- [Be Smarter  about the Way You Eat Carbs ...](https://diet.allwomenstalk.com/be-smarter-about-the-way-you-eat-carbs/)
+- [7 Fab Activities to Try Instead of Stress Eating ....](https://diet.allwomenstalk.com/stop-stress-eating-by-doing-these-activities-instead/)
+- [Make These 7 Dietary Changes for Better Focus ...](https://diet.allwomenstalk.com/make-these-dietary-changes-for-better-focus/)
+- [7 Dietary Rules You Dont Want to Forget ...](https://diet.allwomenstalk.com/dietary-rules-you-dont-want-to-forget/)
+- [7 Ways to Eat Comfort Food without Gaining Weight ...](https://weightloss.allwomenstalk.com/ways-to-eat-comfort-food-without-gaining-weight/)
+- [How to Stay Healthy around Delish Thanksgiving Foo...](https://health.allwomenstalk.com/how-to-stay-healthy-this-thanksgiving/)
+- [How to Cut down on Sugar during the Holidays ...](https://diet.allwomenstalk.com/how-to-cut-down-on-sugar-during-the-holidays/)
 - [7 Tips for Avoiding Diabetes ...](https://health.allwomenstalk.com/7-tips-for-avoiding-diabetes/)
 - [7 Tips for Losing Weight ...](https://allwomenstalk.com/7-tips-for-losing-weight/)
 

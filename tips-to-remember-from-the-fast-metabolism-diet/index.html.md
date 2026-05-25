@@ -50,16 +50,16 @@ This diet lasts 28 days and has three distinct phases to follow. It might seem a
 
 ## Related Posts
 
-- [combos food](https://food.allwomenstalk.com/winning-breakfast-combos-that-will-fuel-your-day-and-help-you-drop-those-unwanted-pounds/)
-- [how to chia seeds for weight loss](https://food.allwomenstalk.com/nutrients-in-chia-seeds-that-can-help-you-lose-weight-and-look-great/)
-- [expedite foods](https://weightloss.allwomenstalk.com/super-foods-to-expedite-weight-loss/)
-- [what herbs help you lose weight](https://weightloss.allwomenstalk.com/herbs-that-might-help-you-lose-the-weight-faster/)
-- [fat burning lemonade: 32 oz. water fresh squeezed ...](https://food.allwomenstalk.com/green-recipes-that-will-slim-you-down-in-no-time-and-help-you-look-fabulous/)
-- [eating sandwiches to lose weight](https://food.allwomenstalk.com/healthy-and-easy-sandwiches-for-weight-loss/)
-- [loose weight breakfast](https://food.allwomenstalk.com/delicious-breakfast-ideas-for-a-weight-loss-meal-plan/)
-- [best seeds to lose weight](https://weightloss.allwomenstalk.com/powerful-seeds-to-eat-that-can-help-you-lose-weight/)
-- [how can kids lose weight](https://weightloss.allwomenstalk.com/ways-your-kids-can-help-you-lose-weight/)
 - [books about losing weight](https://weightloss.allwomenstalk.com/life-tips-about-losing-weight-that-diet-book-wont-teach-you/)
+- [what herbs help you lose weight](https://weightloss.allwomenstalk.com/herbs-that-might-help-you-lose-the-weight-faster/)
+- [eating sandwiches to lose weight](https://food.allwomenstalk.com/healthy-and-easy-sandwiches-for-weight-loss/)
+- [expedite foods](https://weightloss.allwomenstalk.com/super-foods-to-expedite-weight-loss/)
+- [combos food](https://food.allwomenstalk.com/winning-breakfast-combos-that-will-fuel-your-day-and-help-you-drop-those-unwanted-pounds/)
+- [fat burning lemonade: 32 oz. water fresh squeezed ...](https://food.allwomenstalk.com/green-recipes-that-will-slim-you-down-in-no-time-and-help-you-look-fabulous/)
+- [how can kids lose weight](https://weightloss.allwomenstalk.com/ways-your-kids-can-help-you-lose-weight/)
+- [loose weight breakfast](https://food.allwomenstalk.com/delicious-breakfast-ideas-for-a-weight-loss-meal-plan/)
+- [how to chia seeds for weight loss](https://food.allwomenstalk.com/nutrients-in-chia-seeds-that-can-help-you-lose-weight-and-look-great/)
+- [best seeds to lose weight](https://weightloss.allwomenstalk.com/powerful-seeds-to-eat-that-can-help-you-lose-weight/)
 - [9 Tips That Make Dieting Go Smoothly ...](https://diet.allwomenstalk.com/tips-that-make-dieting-go-smoothly/)
 - [11 Tips on How to Keep to Your Diet ...](https://allwomenstalk.com/tips-on-how-to-keep-to-your-diet/)
 

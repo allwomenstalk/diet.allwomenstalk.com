@@ -76,16 +76,16 @@ Top Photo Credit: [pinterest.com](https://www.pinterest.com/pin/219517508/)
 
 ## Related Posts
 
-- [weirdest foods ever](https://cooking.allwomenstalk.com/7-really-weird-foods-from-the-sea/)
-- [8 Best Organic Foods to Buy ...](https://food.allwomenstalk.com/best-organic-foods-to-buy/)
+- [Top 10 Foods with Antioxidants ...](https://diet.allwomenstalk.com/top-foods-with-antioxidants/)
 - [foods most people dont like](https://cooking.allwomenstalk.com/foods-we-hate-but-shouldnt/)
 - [smart food ideas](https://cooking.allwomenstalk.com/quick-smart-foods/)
+- [weirdest foods ever](https://cooking.allwomenstalk.com/7-really-weird-foods-from-the-sea/)
+- [8 Food Additvies to Steer Clear of ...](https://diet.allwomenstalk.com/food-additvies-to-steer-clear-of/)
+- [8 Foods That Fight Pain ...](https://cooking.allwomenstalk.com/foods-that-fight-pain/)
+- [8 Best Organic Foods to Buy ...](https://food.allwomenstalk.com/best-organic-foods-to-buy/)
+- [7 Fast Foods to Avoid Altogether ...](https://diet.allwomenstalk.com/fast-foods-to-avoid-altogether/)
 - [vending machines healthy options](https://cooking.allwomenstalk.com/healthy-vending-machine-snacks/)
 - [healthy alternative meals](https://diet.allwomenstalk.com/healthy-and-diet-friendly-alternatives-to-your-favorite-comfort-foods/)
-- [Top 10 Foods with Antioxidants ...](https://diet.allwomenstalk.com/top-foods-with-antioxidants/)
-- [7 Fast Foods to Avoid Altogether ...](https://diet.allwomenstalk.com/fast-foods-to-avoid-altogether/)
-- [8 Foods That Fight Pain ...](https://cooking.allwomenstalk.com/foods-that-fight-pain/)
-- [8 Food Additvies to Steer Clear of ...](https://diet.allwomenstalk.com/food-additvies-to-steer-clear-of/)
 - [7 Foods with Least Calories ...](https://weightloss.allwomenstalk.com/foods-with-least-calories/)
 - [9 Foods under 100 Calories ...](https://weightloss.allwomenstalk.com/foods-under-100-calories/)
 

@@ -42,16 +42,16 @@ Personally, I am not a vegan, but I do try to opt for vegan food whenever I can!
 
 ## Related Posts
 
-- [what fruit is good for acne](https://beauty.allwomenstalk.com/foods-that-clear-up-acne/)
-- [scary foods](https://weightloss.allwomenstalk.com/scary-foods-that-are-unhealthy-for-you/)
-- [strange ingredients in food](https://food.allwomenstalk.com/weird-ingredients-in-everyday-foods/)
-- [best fruits pre workout](https://fitness.allwomenstalk.com/best-pre-workout-foods/)
-- [foods that heal the body](https://food.allwomenstalk.com/plant-foods-that-heal-your-body/)
-- [household dishes](https://lifestyle.allwomenstalk.com/household-uses-for-food/)
-- [how many calories in a granny smith apple with ski...](https://food.allwomenstalk.com/powerful-fruits-to-add-to-your-diet/)
-- [energy things to eat](https://food.allwomenstalk.com/foods-to-eat-for-maximum-energy/)
 - [foods to eat for energy](https://food.allwomenstalk.com/raw-recipes-to-eat-for-energy/)
+- [strange ingredients in food](https://food.allwomenstalk.com/weird-ingredients-in-everyday-foods/)
 - [spring health sleam meals](https://weightloss.allwomenstalk.com/scrumptious-spring-foods-for-weight-loss/)
+- [household dishes](https://lifestyle.allwomenstalk.com/household-uses-for-food/)
+- [best fruits pre workout](https://fitness.allwomenstalk.com/best-pre-workout-foods/)
+- [energy things to eat](https://food.allwomenstalk.com/foods-to-eat-for-maximum-energy/)
+- [scary foods](https://weightloss.allwomenstalk.com/scary-foods-that-are-unhealthy-for-you/)
+- [what fruit is good for acne](https://beauty.allwomenstalk.com/foods-that-clear-up-acne/)
+- [foods that heal the body](https://food.allwomenstalk.com/plant-foods-that-heal-your-body/)
+- [how many calories in a granny smith apple with ski...](https://food.allwomenstalk.com/powerful-fruits-to-add-to-your-diet/)
 - [7 Great Vegan Recipes for Non-Vegans to Try ...](https://cooking.allwomenstalk.com/great-vegan-recipes-for-non-vegans-to-try/)
 - [7 Vegetarian Fast Food Options ...](https://diet.allwomenstalk.com/vegetarian-fast-food-options/)
 

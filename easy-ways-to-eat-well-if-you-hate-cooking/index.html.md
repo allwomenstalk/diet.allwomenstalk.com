@@ -54,16 +54,16 @@ We all have to eat, so cooking is difficult to avoid altogether. But there´s no
 
 ## Related Posts
 
-- [how to start eating clean](https://health.allwomenstalk.com/ways-to-start-eating-clean/)
+- [controlling portions](https://diet.allwomenstalk.com/noteworthy-pointers-on-controlling-portion-sizes/)
 - [are goldfish bad for weight loss](https://food.allwomenstalk.com/ways-to-avoid-late-night-snacking/)
-- [staying healthy in the new year](https://health.allwomenstalk.com/simple-ways-to-stay-healthy-in-the-new-year/)
 - [avocado ways to eat](https://food.allwomenstalk.com/mouth-watering-ways-to-eat-avocado/)
+- [how to have healthy relationship with food](https://food.allwomenstalk.com/healthy-rules-to-make-you-love-food/)
+- [how to start eating clean](https://health.allwomenstalk.com/ways-to-start-eating-clean/)
+- [energy kick](https://health.allwomenstalk.com/healthy-ways-to-get-an-energy-kick/)
+- [artnaturals essential oil](https://food.allwomenstalk.com/healthy-cooking-tips-you-wont-have-heard-before/)
+- [staying healthy in the new year](https://health.allwomenstalk.com/simple-ways-to-stay-healthy-in-the-new-year/)
 - [best way to get omega-3](https://diet.allwomenstalk.com/healthy-ways-to-get-omega-3/)
 - [paleo diet tips](https://health.allwomenstalk.com/tips-about-followin-a-paleo-diet/)
-- [energy kick](https://health.allwomenstalk.com/healthy-ways-to-get-an-energy-kick/)
-- [how to have healthy relationship with food](https://food.allwomenstalk.com/healthy-rules-to-make-you-love-food/)
-- [artnaturals essential oil](https://food.allwomenstalk.com/healthy-cooking-tips-you-wont-have-heard-before/)
-- [controlling portions](https://diet.allwomenstalk.com/noteworthy-pointers-on-controlling-portion-sizes/)
 - [7 Ways to Get Your Family to Eat Healthy ...](https://allwomenstalk.com/7-ways-to-get-your-family-to-eat-healthy/)
 - [7 Tips on Eating Well ...](https://allwomenstalk.com/7-tips-on-eating-well/)
 

@@ -42,16 +42,16 @@ These are 7 habits of healthy eaters that you can learn from. If you have any ad
 
 ## Related Posts
 
-- [healthy restaurant appetizers](https://food.allwomenstalk.com/heres-how-to-serve-appetizers-that-are-healthy-and-delicious/)
-- [7 Tips to Make Your Coffee a Healthy Obsession ...](https://health.allwomenstalk.com/tips-to-make-your-coffee-a-healthy-obsession/)
-- [Heres How You Can Eat Clean on the Cheap ...](https://diet.allwomenstalk.com/heres-how-you-can-eat-clean-on-the-cheap/)
-- [How to Become a Clean Eating Master for Girls Look...](https://diet.allwomenstalk.com/how-to-be-a-jedi-of-clean-eating/)
-- [Do You Follow These Rules of Good Nutrition](https://food.allwomenstalk.com/do-you-follow-these-rules-of-good-nutrition/)
-- [why was popcorn banned in 1920](https://food.allwomenstalk.com/popcorn-heres-how-you-should-be-eating-it/)
-- [Ways to Beat Sugar Cravings for Women Severely Add...](https://diet.allwomenstalk.com/the-secret-to-beating-your-sugar-craving-is-simple/)
 - [How to Rid Yourself of Crankiness by Changing Your...](https://diet.allwomenstalk.com/how-to-rid-yourself-of-crankiness-by-changing-your-diet/)
-- [Simple Ways to Eat Healthy for Girls Whose Friends...](https://diet.allwomenstalk.com/how-to-eat-healthy-when-all-your-friends-arent/)
+- [7 Tips to Make Your Coffee a Healthy Obsession ...](https://health.allwomenstalk.com/tips-to-make-your-coffee-a-healthy-obsession/)
 - [How to Stay Your Healthiest when Going through the...](https://food.allwomenstalk.com/how-to-stay-your-healthiest-when-going-through-the-drive-thru/)
+- [How to Become a Clean Eating Master for Girls Look...](https://diet.allwomenstalk.com/how-to-be-a-jedi-of-clean-eating/)
+- [Ways to Beat Sugar Cravings for Women Severely Add...](https://diet.allwomenstalk.com/the-secret-to-beating-your-sugar-craving-is-simple/)
+- [why was popcorn banned in 1920](https://food.allwomenstalk.com/popcorn-heres-how-you-should-be-eating-it/)
+- [Simple Ways to Eat Healthy for Girls Whose Friends...](https://diet.allwomenstalk.com/how-to-eat-healthy-when-all-your-friends-arent/)
+- [Heres How You Can Eat Clean on the Cheap ...](https://diet.allwomenstalk.com/heres-how-you-can-eat-clean-on-the-cheap/)
+- [healthy restaurant appetizers](https://food.allwomenstalk.com/heres-how-to-serve-appetizers-that-are-healthy-and-delicious/)
+- [Do You Follow These Rules of Good Nutrition](https://food.allwomenstalk.com/do-you-follow-these-rules-of-good-nutrition/)
 - [7 Tips to Eating a More Heart-Healthy Diet ...](https://allwomenstalk.com/7-tips-to-eating-a-more-heart-healthy-diet/)
 - [7 Tips on Eating Well ...](https://allwomenstalk.com/7-tips-on-eating-well/)
 

@@ -57,15 +57,15 @@ So go ahead swap out those unhealthy cravings, distract yourself, have some wate
 ## Related Posts
 
 - [How to Stick to Your New Years Resolution of Eatin...](https://diet.allwomenstalk.com/how-to-stick-to-your-new-years-resolution-of-eating-more-healthily/)
-- [How to Start the New Year off on a Healthier Foot ...](https://health.allwomenstalk.com/how-to-start-the-new-year-off-on-a-healthier-foot/)
-- [How to Prevent Sugar from Sneaking into Your Food ...](https://diet.allwomenstalk.com/how-to-prevent-sugar-from-sneaking-into-your-food/)
-- [Dont Forget to do These 7 Heathy Things before the...](https://health.allwomenstalk.com/dont-forget-to-do-these-heathy-things-before-the-years-end/)
-- [Make Your Diet Easier to Stick to with These Simpl...](https://weightloss.allwomenstalk.com/make-your-diet-easier-to-stick-to-with-these-simple-steps/)
-- [You Can Control Your Appetite if You do These Simp...](https://weightloss.allwomenstalk.com/you-can-control-your-appetite-if-you-do-these-simple-things/)
-- [making a meal healthier involves eating foods in](https://food.allwomenstalk.com/how-to-cook-healthier-in-the-upcoming-year/)
-- [How to Eat Better in 2019 than You Did in 2018 ...](https://diet.allwomenstalk.com/how-to-eat-better-in-than-you-did-in/)
 - [7 Tips to Snack Smarter and Gain Less ...](https://food.allwomenstalk.com/tips-to-snack-smarter-and-gain-less/)
+- [How to Start the New Year off on a Healthier Foot ...](https://health.allwomenstalk.com/how-to-start-the-new-year-off-on-a-healthier-foot/)
+- [Make Your Diet Easier to Stick to with These Simpl...](https://weightloss.allwomenstalk.com/make-your-diet-easier-to-stick-to-with-these-simple-steps/)
+- [How to Eat Better in 2019 than You Did in 2018 ...](https://diet.allwomenstalk.com/how-to-eat-better-in-than-you-did-in/)
+- [How to Prevent Sugar from Sneaking into Your Food ...](https://diet.allwomenstalk.com/how-to-prevent-sugar-from-sneaking-into-your-food/)
 - [Eat Healthier by Setting These New Years Resolutio...](https://diet.allwomenstalk.com/eat-healthier-by-setting-these-new-years-resolutions-for-yourself/)
+- [making a meal healthier involves eating foods in](https://food.allwomenstalk.com/how-to-cook-healthier-in-the-upcoming-year/)
+- [Dont Forget to do These 7 Heathy Things before the...](https://health.allwomenstalk.com/dont-forget-to-do-these-heathy-things-before-the-years-end/)
+- [You Can Control Your Appetite if You do These Simp...](https://weightloss.allwomenstalk.com/you-can-control-your-appetite-if-you-do-these-simple-things/)
 - [7 Ways to Control Your Cravings ...](https://cooking.allwomenstalk.com/7-ways-to-control-your-cravings/)
 - [7 Healthy and Diet-Friendly Alternatives to Your F...](https://diet.allwomenstalk.com/healthy-and-diet-friendly-alternatives-to-your-favorite-comfort-foods/)
 

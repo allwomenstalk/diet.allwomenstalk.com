@@ -42,16 +42,16 @@ Though I hardly ever drink, and have only had wine maybe three times in my life,
 
 ## Related Posts
 
-- [7 Steps to Eating Better and Leaving Your Old Habi...](https://diet.allwomenstalk.com/steps-to-eating-better-and-leaving-your-old-habits-behind/)
-- [7 Ways to Avoid Holiday Weight Gain ...](https://weightloss.allwomenstalk.com/ways-to-avoid-holiday-weight-gain/)
-- [how to stop obsessing over food and weight](https://diet.allwomenstalk.com/ways-to-overcome-your-diet-obsessions-now/)
 - [7 Fabulous Ways to Fight Fat with Food ...](https://weightloss.allwomenstalk.com/fabulous-ways-to-fight-fat-with-food/)
-- [7 Fun Ways to Start Changing up Your Healthy Eatin...](https://diet.allwomenstalk.com/fun-ways-to-start-changing-up-your-healthy-eating-habits-if-youre-in-a-rut/)
-- [7 Lunchbox Diet Tips That Will Make a Difference i...](https://diet.allwomenstalk.com/lunchbox-diet-tips-that-will-make-a-difference-in-your-whole-day/)
-- [7 Nutrition Tips for a Healthy Heart That You Shou...](https://health.allwomenstalk.com/nutrition-tips-for-a-healthy-heart-that-you-should-follow/)
+- [7 Steps to Eating Better and Leaving Your Old Habi...](https://diet.allwomenstalk.com/steps-to-eating-better-and-leaving-your-old-habits-behind/)
+- [skinny breakfast](https://food.allwomenstalk.com/steps-and-ingredients-for-making-a-skinny-breakfast/)
+- [how to stop obsessing over food and weight](https://diet.allwomenstalk.com/ways-to-overcome-your-diet-obsessions-now/)
 - [7 Foods to Eat for Lunch That Prevent Overeating a...](https://food.allwomenstalk.com/foods-to-eat-for-lunch-that-prevent-overeating-at-dinner/)
 - [7 Ways to Eat Healthy without Trying ...](https://health.allwomenstalk.com/ways-to-eat-healthy-without-trying/)
-- [skinny breakfast](https://food.allwomenstalk.com/steps-and-ingredients-for-making-a-skinny-breakfast/)
+- [7 Ways to Avoid Holiday Weight Gain ...](https://weightloss.allwomenstalk.com/ways-to-avoid-holiday-weight-gain/)
+- [7 Nutrition Tips for a Healthy Heart That You Shou...](https://health.allwomenstalk.com/nutrition-tips-for-a-healthy-heart-that-you-should-follow/)
+- [7 Lunchbox Diet Tips That Will Make a Difference i...](https://diet.allwomenstalk.com/lunchbox-diet-tips-that-will-make-a-difference-in-your-whole-day/)
+- [7 Fun Ways to Start Changing up Your Healthy Eatin...](https://diet.allwomenstalk.com/fun-ways-to-start-changing-up-your-healthy-eating-habits-if-youre-in-a-rut/)
 - [7 Tips for Choosing a Diet Buddy ...](https://diet.allwomenstalk.com/tips-for-choosing-a-diet-buddy/)
 - [7 Best Ways to Control Your Weight ...](https://allwomenstalk.com/7-best-ways-to-control-your-weight/)
 

@@ -56,16 +56,16 @@ Always analyze the food label to ensure there is no added sugar and remember sma
 
 ## Related Posts
 
-- [You Can Control Your Appetite if You do These Simp...](https://weightloss.allwomenstalk.com/you-can-control-your-appetite-if-you-do-these-simple-things/)
-- [Dont Forget to do These 7 Heathy Things before the...](https://health.allwomenstalk.com/dont-forget-to-do-these-heathy-things-before-the-years-end/)
-- [How to Eat Better in 2019 than You Did in 2018 ...](https://diet.allwomenstalk.com/how-to-eat-better-in-than-you-did-in/)
-- [Make Your Diet Easier to Stick to with These Simpl...](https://weightloss.allwomenstalk.com/make-your-diet-easier-to-stick-to-with-these-simple-steps/)
 - [7 Healthy Things to do While Binge Watching  Netfl...](https://health.allwomenstalk.com/healthy-things-to-do-while-watching-netflix/)
-- [How to Make the Switch to Whole Grains for a Bette...](https://diet.allwomenstalk.com/how-to-make-the-switch-to-whole-grains-for-a-better-body/)
-- [how to curb cravings](https://weightloss.allwomenstalk.com/this-is-how-athletes-curb-their-food-cravings/)
 - [Heres How to Know if You Eat Enough Veggies ...](https://health.allwomenstalk.com/heres-how-to-know-if-you-eat-enough-veggies/)
 - [making a meal healthier involves eating foods in](https://food.allwomenstalk.com/how-to-cook-healthier-in-the-upcoming-year/)
+- [how to curb cravings](https://weightloss.allwomenstalk.com/this-is-how-athletes-curb-their-food-cravings/)
+- [Dont Forget to do These 7 Heathy Things before the...](https://health.allwomenstalk.com/dont-forget-to-do-these-heathy-things-before-the-years-end/)
+- [You Can Control Your Appetite if You do These Simp...](https://weightloss.allwomenstalk.com/you-can-control-your-appetite-if-you-do-these-simple-things/)
+- [How to Eat Better in 2019 than You Did in 2018 ...](https://diet.allwomenstalk.com/how-to-eat-better-in-than-you-did-in/)
 - [7 Ways to Reverse Bad Diet Decisions ...](https://weightloss.allwomenstalk.com/ways-to-reverse-bad-diet-decisions/)
+- [Make Your Diet Easier to Stick to with These Simpl...](https://weightloss.allwomenstalk.com/make-your-diet-easier-to-stick-to-with-these-simple-steps/)
+- [How to Make the Switch to Whole Grains for a Bette...](https://diet.allwomenstalk.com/how-to-make-the-switch-to-whole-grains-for-a-better-body/)
 - [5 Tips on Resisting the Food Temptation ...](https://allwomenstalk.com/resisting-the-food-temptation/)
 - [8 Reasons to Avoid Sugar ...](https://eatial.com/reasons-to-avoid-sugar/)
 

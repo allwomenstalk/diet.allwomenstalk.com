@@ -56,16 +56,16 @@ I know having a fast food addiction is real, and our country markets to people w
 
 ## Related Posts
 
-- [how to get your mind off eating](https://diet.allwomenstalk.com/ways-to-take-your-mind-off-food-when-youre-not-really-hungry/)
-- [coconut flour side effects](https://health.allwomenstalk.com/ways-coconut-flour-can-help-you-ditch-those-sugar-cravings/)
-- [eat differently](https://diet.allwomenstalk.com/ways-to-deal-with-eating-differently-than-others/)
-- [how to eat healthy at chinese restaurant](https://food.allwomenstalk.com/tips-for-eating-healthy-at-a-chinese-restaurant/)
 - [navigate grocery store](https://lifestyle.allwomenstalk.com/simple-steps-for-navigating-through-the-grocery-store/)
-- [eating healthy in disney world](https://food.allwomenstalk.com/ways-to-eat-healthy-at-disney-world/)
-- [apple festival chicago](https://food.allwomenstalk.com/different-ways-to-eat-an-apple-a-day/)
-- [cooking yourself thin recipes](https://diet.allwomenstalk.com/simple-ways-to-cook-yourself-thin/)
-- [tricks for eating less](https://diet.allwomenstalk.com/tricks-to-help-you-eat-less-all-day-long/)
+- [how to eat healthy at chinese restaurant](https://food.allwomenstalk.com/tips-for-eating-healthy-at-a-chinese-restaurant/)
 - [how to avoid food temptation](https://diet.allwomenstalk.com/ways-to-resist-temptation-when-it-comes-to-food/)
+- [coconut flour side effects](https://health.allwomenstalk.com/ways-coconut-flour-can-help-you-ditch-those-sugar-cravings/)
+- [apple festival chicago](https://food.allwomenstalk.com/different-ways-to-eat-an-apple-a-day/)
+- [eat differently](https://diet.allwomenstalk.com/ways-to-deal-with-eating-differently-than-others/)
+- [tricks for eating less](https://diet.allwomenstalk.com/tricks-to-help-you-eat-less-all-day-long/)
+- [cooking yourself thin recipes](https://diet.allwomenstalk.com/simple-ways-to-cook-yourself-thin/)
+- [how to get your mind off eating](https://diet.allwomenstalk.com/ways-to-take-your-mind-off-food-when-youre-not-really-hungry/)
+- [eating healthy in disney world](https://food.allwomenstalk.com/ways-to-eat-healthy-at-disney-world/)
 - [7 Ways to Control Your Cravings ...](https://cooking.allwomenstalk.com/7-ways-to-control-your-cravings/)
 - [5 Tips on Resisting the Food Temptation ...](https://allwomenstalk.com/resisting-the-food-temptation/)
 

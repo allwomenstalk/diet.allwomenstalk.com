@@ -44,16 +44,16 @@ While it is important to understand what you are eating, you should also not be 
 
 ## Related Posts
 
+- [stay healthy while you party](https://health.allwomenstalk.com/how-to-stay-healthy-during-party-season/)
 - [ways to stop cravings](https://diet.allwomenstalk.com/ways-to-stop-cravings-for-unhealthy-foods-and-sugar/)
-- [easy ways to be healthy](https://health.allwomenstalk.com/easy-peasy-ways-to-stay-healthy/)
+- [Eat Well on Your Honeymoon](https://allwomenstalk.com/eat-well-on-your-honeymoon/)
 - [how to eat when broke](https://food.allwomenstalk.com/how-to-eat-on-a-dollar-a-day-for-broke-girls/)
+- [easy ways to be healthy](https://health.allwomenstalk.com/easy-peasy-ways-to-stay-healthy/)
+- [does drinking water flatten stomach](https://weightloss.allwomenstalk.com/how-to-drink-water-for-a-flatter-stomach/)
+- [maintaining water balance](https://health.allwomenstalk.com/how-to-maintain-body-water-balance-throughout-the-day/)
 - [nutrition tips for improving your health](https://health.allwomenstalk.com/nutrition-tips-to-feel-better-look-better-and-live-your-best-life/)
 - [what is food diversification](https://food.allwomenstalk.com/how-to-diversify-your-everyday-meals/)
 - [how to lose weight for busy students](https://diet.allwomenstalk.com/how-to-eat-a-balanced-diet-for-busy-students/)
-- [maintaining water balance](https://health.allwomenstalk.com/how-to-maintain-body-water-balance-throughout-the-day/)
-- [stay healthy while you party](https://health.allwomenstalk.com/how-to-stay-healthy-during-party-season/)
-- [does drinking water flatten stomach](https://weightloss.allwomenstalk.com/how-to-drink-water-for-a-flatter-stomach/)
-- [Eat Well on Your Honeymoon](https://allwomenstalk.com/eat-well-on-your-honeymoon/)
 - [8 Healthy Cooking Habits to Follow ...](https://cooking.allwomenstalk.com/8-healthy-cooking-habits-to-follow/)
 - [8 Ways to Increase Intake of Healthy and Natural F...](https://health.allwomenstalk.com/ways-to-increase-intake-of-healthy-and-natural-food/)
 

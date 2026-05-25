@@ -42,16 +42,16 @@ Let’s get one thing straight: fruit does NOT make you fat, and I hope none of 
 
 ## Related Posts
 
-- [gross facts about fast food](https://food.allwomenstalk.com/trivia-and-facts-about-junk-food-that-will-cause-a-rethink/)
-- [7 Reasons to Stop Taking so Many Supplements ...](https://health.allwomenstalk.com/reasons-to-stop-taking-so-many-supplements/)
-- [Why You Should Never Completely Cut out Carbs ...](https://diet.allwomenstalk.com/reasons-you-should-not-cut-out-carbs/)
-- [7 Major Mistakes Not to Make when Going on a Vegan...](https://diet.allwomenstalk.com/major-mistakes-not-to-make-when-going-on-a-vegan-diet/)
-- [7 Beliefs That Make It Tough to Lose Weight ...](https://weightloss.allwomenstalk.com/beliefs-that-make-it-tough-to-lose-weight/)
-- [7 Reasons Youre Not Losing Belly Fat and How to Co...](https://weightloss.allwomenstalk.com/reasons-youre-not-losing-belly-fat-and-how-to-combat-this/)
-- [These Disastrous Diet Excuses Could Be Sabotaging ...](https://diet.allwomenstalk.com/worst-diet-excuses-you-need-to-stop-making/)
 - [7 Reasons Your Healthy Eating May Need a Makeover ...](https://health.allwomenstalk.com/reasons-your-healthy-eating-may-need-a-makeover/)
+- [These Disastrous Diet Excuses Could Be Sabotaging ...](https://diet.allwomenstalk.com/worst-diet-excuses-you-need-to-stop-making/)
 - [7 Reasons Why Obesity is Contagious ...](https://weightloss.allwomenstalk.com/reasons-why-obesity-is-contagious/)
+- [7 Reasons Youre Not Losing Belly Fat and How to Co...](https://weightloss.allwomenstalk.com/reasons-youre-not-losing-belly-fat-and-how-to-combat-this/)
+- [7 Beliefs That Make It Tough to Lose Weight ...](https://weightloss.allwomenstalk.com/beliefs-that-make-it-tough-to-lose-weight/)
+- [7 Reasons to Stop Taking so Many Supplements ...](https://health.allwomenstalk.com/reasons-to-stop-taking-so-many-supplements/)
+- [7 Major Mistakes Not to Make when Going on a Vegan...](https://diet.allwomenstalk.com/major-mistakes-not-to-make-when-going-on-a-vegan-diet/)
+- [gross facts about fast food](https://food.allwomenstalk.com/trivia-and-facts-about-junk-food-that-will-cause-a-rethink/)
 - [Avoid These 7 Extremely Addictive FoodsThat Sabota...](https://food.allwomenstalk.com/extremely-addictive-foods/)
+- [Why You Should Never Completely Cut out Carbs ...](https://diet.allwomenstalk.com/reasons-you-should-not-cut-out-carbs/)
 - [7 Reasons Not to Diet ...](https://diet.allwomenstalk.com/7-reasons-not-to-diet/)
 - [9 Reasons Your Diet May Fail ...](https://allwomenstalk.com/9-reasons-your-diet-may-fail/)
 

@@ -42,16 +42,16 @@ What’s your favorite thing to order from takeout? Which of these ideas will he
 
 ## Related Posts
 
-- [How to Boost Your Willpower for Eating Healthier ....](https://health.allwomenstalk.com/how-to-boost-your-willpower-for-eating-healthier/)
-- [10 Awesome Ways to Eat Healthy for Girls with Mass...](https://diet.allwomenstalk.com/ways-to-eat-healthy-for-those-who-always-crave-carbs-and-sugar/)
-- [17 Diet and Exercise Hacks All Healthy Students Kn...](https://health.allwomenstalk.com/diet-and-exercise-hacks-all-healthy-students-know/)
-- [10 Mindless Solutions to Kick the Habit of Mindles...](https://weightloss.allwomenstalk.com/mindless-solutions-to-your-mindless-eating-problem/)
 - [How to Deal with Your Toughest Cravings  ...](https://diet.allwomenstalk.com/how-to-deal-with-your-toughest-cravings/)
-- [Cut Calories by Eating These Foil Packet Meals Tod...](https://weightloss.allwomenstalk.com/cut-calories-by-eating-these-foil-packet-meals-today/)
-- [How to Follow the 8020 Rule and Live Healthier ...](https://health.allwomenstalk.com/how-to-follow-the-8020-philosophy-and-stay-healthy/)
-- [7 Ways to Make Your Breakfasts Healthier for You ....](https://health.allwomenstalk.com/ways-to-make-your-breakfasts-healthier-for-you/)
+- [10 Mindless Solutions to Kick the Habit of Mindles...](https://weightloss.allwomenstalk.com/mindless-solutions-to-your-mindless-eating-problem/)
 - [7 Ways to Reduce Your Sodium Intake Today ...](https://diet.allwomenstalk.com/ways-to-reduce-your-sodium-intake-today/)
+- [10 Awesome Ways to Eat Healthy for Girls with Mass...](https://diet.allwomenstalk.com/ways-to-eat-healthy-for-those-who-always-crave-carbs-and-sugar/)
+- [7 Ways to Make Your Breakfasts Healthier for You ....](https://health.allwomenstalk.com/ways-to-make-your-breakfasts-healthier-for-you/)
+- [How to Follow the 8020 Rule and Live Healthier ...](https://health.allwomenstalk.com/how-to-follow-the-8020-philosophy-and-stay-healthy/)
+- [How to Boost Your Willpower for Eating Healthier ....](https://health.allwomenstalk.com/how-to-boost-your-willpower-for-eating-healthier/)
 - [10 Ways to Stabilize Blood Sugar to Stay Healthy  ...](https://health.allwomenstalk.com/ways-to-stabilize-blood-sugar-to-stay-healthy/)
+- [17 Diet and Exercise Hacks All Healthy Students Kn...](https://health.allwomenstalk.com/diet-and-exercise-hacks-all-healthy-students-know/)
+- [Cut Calories by Eating These Foil Packet Meals Tod...](https://weightloss.allwomenstalk.com/cut-calories-by-eating-these-foil-packet-meals-today/)
 - [Stick to Your Goals when You Make These Meals Ahea...](https://food.allwomenstalk.com/make-ahead-meals-for-weight-loss/)
 - [Too Tired to Cook Heres How to Eat Healthy when Yo...](https://food.allwomenstalk.com/too-tired-to-cook-heres-how-to-eat-healthy-when-you-go-out/)
 

@@ -42,16 +42,16 @@ These are 7 activities you can choose instead of giving in to stress eating. Hav
 
 ## Related Posts
 
+- [How to Stay Healthy around Delish Thanksgiving Foo...](https://health.allwomenstalk.com/how-to-stay-healthy-this-thanksgiving/)
 - [7 Ways to Eat Comfort Food without Gaining Weight ...](https://weightloss.allwomenstalk.com/ways-to-eat-comfort-food-without-gaining-weight/)
 - [Be Smarter about the Way You Eat Sugar ...](https://diet.allwomenstalk.com/be-smarter-about-the-way-you-eat-sugar/)
-- [How to Cut down on Sugar during the Holidays ...](https://diet.allwomenstalk.com/how-to-cut-down-on-sugar-during-the-holidays/)
-- [Make These 7 Dietary Changes for Better Focus ...](https://diet.allwomenstalk.com/make-these-dietary-changes-for-better-focus/)
 - [eat fruit gif](https://diet.allwomenstalk.com/be-smarter-about-the-way-you-eat-fruit/)
-- [How to Stay Healthy around Delish Thanksgiving Foo...](https://health.allwomenstalk.com/how-to-stay-healthy-this-thanksgiving/)
+- [how many calories does dabbing grease off pizza sa...](https://food.allwomenstalk.com/the-trick-to-eating-pizza-without-consuming-too-many-calories/)
+- [Make These 7 Dietary Changes for Better Focus ...](https://diet.allwomenstalk.com/make-these-dietary-changes-for-better-focus/)
 - [Be Smarter  about the Way You Eat Carbs ...](https://diet.allwomenstalk.com/be-smarter-about-the-way-you-eat-carbs/)
 - [7 Dietary Rules You Dont Want to Forget ...](https://diet.allwomenstalk.com/dietary-rules-you-dont-want-to-forget/)
 - [These 7 Tips Will Help You Tackle Comfort Food Cra...](https://diet.allwomenstalk.com/these-tips-will-help-you-tackle-comfort-food-cravings/)
-- [how many calories does dabbing grease off pizza sa...](https://food.allwomenstalk.com/the-trick-to-eating-pizza-without-consuming-too-many-calories/)
+- [How to Cut down on Sugar during the Holidays ...](https://diet.allwomenstalk.com/how-to-cut-down-on-sugar-during-the-holidays/)
 - [7 Ways to Stop Snacking ...](https://health.allwomenstalk.com/7-ways-to-stop-snacking/)
 - [10 Things You Should do Instead of Dieting ...](https://allwomenstalk.com/10-things-you-should-do-instead-of-dieting/)
 

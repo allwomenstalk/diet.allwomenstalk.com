@@ -45,14 +45,14 @@ These tips aren't easy at first but they help combat your junk food cravings and
 ## Related Posts
 
 - [7 Diet Tips for Surviving a Barbeque ...](https://diet.allwomenstalk.com/diet-tips-for-surviving-a-barbeque/)
+- [How to Fit More Antioxidants into Your Diet with L...](https://food.allwomenstalk.com/easy-ways-to-get-more-antioxidants-in-your-diet/)
 - [Super Easy Ways to Clean up Your Diet before the S...](https://food.allwomenstalk.com/easy-ways-to-clean-up-your-diet-this-summer/)
+- [7 Tips for Picking  a Sustainable Diet ...](https://diet.allwomenstalk.com/ways-to-pick-a-sustainable-diet/)
 - [7 Ways to Learn to Love Vegetables ...](https://health.allwomenstalk.com/ways-to-learn-to-love-vegetables/)
 - [7 Effective Ways to Eat Less Sugar for Women Who W...](https://food.allwomenstalk.com/ways-to-eat-less-sugar-and-keep-the-cravings-at-bay/)
-- [scrumptious burger](https://food.allwomenstalk.com/steps-to-a-healthier-burger-that-tastes-scrumptious/)
-- [How to Fit More Antioxidants into Your Diet with L...](https://food.allwomenstalk.com/easy-ways-to-get-more-antioxidants-in-your-diet/)
-- [7 Tips for Picking  a Sustainable Diet ...](https://diet.allwomenstalk.com/ways-to-pick-a-sustainable-diet/)
 - [7 Incredibly Helpful Dietary Tips for Girls with I...](https://health.allwomenstalk.com/helpful-dietary-tips-for-ibs/)
 - [7 Ways to Snack Smarter and Work out Harder ...](https://weightloss.allwomenstalk.com/ways-to-snack-smarter-and-work-out-harder/)
+- [scrumptious burger](https://food.allwomenstalk.com/steps-to-a-healthier-burger-that-tastes-scrumptious/)
 - [7 Tips for Adding Healthy Protein to Your Diet ...](https://food.allwomenstalk.com/tips-for-adding-healthy-protein-to-your-diet/)
 - [7 Ways to Control Your Cravings ...](https://cooking.allwomenstalk.com/7-ways-to-control-your-cravings/)
 - [7 Ways to Stop Snacking ...](https://health.allwomenstalk.com/7-ways-to-stop-snacking/)

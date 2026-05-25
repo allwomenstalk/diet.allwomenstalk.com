@@ -42,16 +42,16 @@ If you eat differently than others, how do you deal with it? I know it can be to
 
 ## Related Posts
 
-- [coconut flour side effects](https://health.allwomenstalk.com/ways-coconut-flour-can-help-you-ditch-those-sugar-cravings/)
-- [cooking yourself thin recipes](https://diet.allwomenstalk.com/simple-ways-to-cook-yourself-thin/)
-- [apple festival chicago](https://food.allwomenstalk.com/different-ways-to-eat-an-apple-a-day/)
-- [eating healthy in disney world](https://food.allwomenstalk.com/ways-to-eat-healthy-at-disney-world/)
-- [food for extremely picky eaters toddler](https://food.allwomenstalk.com/tips-for-picky-eaters-to-get-them-to-enjoy-their-food/)
-- [tricks for eating less](https://diet.allwomenstalk.com/tricks-to-help-you-eat-less-all-day-long/)
 - [navigate grocery store](https://lifestyle.allwomenstalk.com/simple-steps-for-navigating-through-the-grocery-store/)
-- [how to eat healthy at chinese restaurant](https://food.allwomenstalk.com/tips-for-eating-healthy-at-a-chinese-restaurant/)
-- [how to avoid food temptation](https://diet.allwomenstalk.com/ways-to-resist-temptation-when-it-comes-to-food/)
+- [coconut flour side effects](https://health.allwomenstalk.com/ways-coconut-flour-can-help-you-ditch-those-sugar-cravings/)
+- [apple festival chicago](https://food.allwomenstalk.com/different-ways-to-eat-an-apple-a-day/)
 - [how to get your mind off eating](https://diet.allwomenstalk.com/ways-to-take-your-mind-off-food-when-youre-not-really-hungry/)
+- [food for extremely picky eaters toddler](https://food.allwomenstalk.com/tips-for-picky-eaters-to-get-them-to-enjoy-their-food/)
+- [cooking yourself thin recipes](https://diet.allwomenstalk.com/simple-ways-to-cook-yourself-thin/)
+- [how to avoid food temptation](https://diet.allwomenstalk.com/ways-to-resist-temptation-when-it-comes-to-food/)
+- [how to eat healthy at chinese restaurant](https://food.allwomenstalk.com/tips-for-eating-healthy-at-a-chinese-restaurant/)
+- [tricks for eating less](https://diet.allwomenstalk.com/tricks-to-help-you-eat-less-all-day-long/)
+- [eating healthy in disney world](https://food.allwomenstalk.com/ways-to-eat-healthy-at-disney-world/)
 - [7 Tips on Eating Well ...](https://allwomenstalk.com/7-tips-on-eating-well/)
 - [7 Ways to Curb Cravings ...](https://diet.allwomenstalk.com/ways-to-curb-cravings/)
 

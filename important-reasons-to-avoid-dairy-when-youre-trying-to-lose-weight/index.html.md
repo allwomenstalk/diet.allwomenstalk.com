@@ -48,16 +48,16 @@ Dairy alternatives-Instead of drinking cows milk, try almond milk or cashew milk
 
 ## Related Posts
 
-- [tami torossian](https://weightloss.allwomenstalk.com/why-you-should-count-nutrients-not-calories/)
 - [scared to date](https://love.allwomenstalk.com/why-you-shouldnt-be-scared-to-eat-what-you-want-on-a-first-date/)
-- [what not to eat before a workout](https://food.allwomenstalk.com/foods-you-should-never-eat-before-a-workout/)
 - [swimming to lose belly fat](https://weightloss.allwomenstalk.com/mistakes-you-make-when-trying-to-lose-belly-fat/)
 - [fitness gurus](https://fitness.allwomenstalk.com/why-following-fitness-gurus-might-not-be-as-smart-as-you-think/)
-- [common weight loss mistakes](https://weightloss.allwomenstalk.com/the-most-common-weight-loss-mistakes/)
-- [i stopped exercising and lost weight](https://weightloss.allwomenstalk.com/i-thought-i-wasnt-losing-weight-but-then-i-stopped-exercising/)
 - [weight loss excuses](https://weightloss.allwomenstalk.com/excuses-you-hide-behind-when-youre-not-losing-weight-that-need-to-end/)
-- [fitspiration](https://fitness.allwomenstalk.com/how-to-use-fitspiration-the-wrong-way/)
+- [i stopped exercising and lost weight](https://weightloss.allwomenstalk.com/i-thought-i-wasnt-losing-weight-but-then-i-stopped-exercising/)
+- [tami torossian](https://weightloss.allwomenstalk.com/why-you-should-count-nutrients-not-calories/)
 - [how many carbs is too much](https://diet.allwomenstalk.com/signs-youre-eating-too-many-carbs/)
+- [fitspiration](https://fitness.allwomenstalk.com/how-to-use-fitspiration-the-wrong-way/)
+- [what not to eat before a workout](https://food.allwomenstalk.com/foods-you-should-never-eat-before-a-workout/)
+- [common weight loss mistakes](https://weightloss.allwomenstalk.com/the-most-common-weight-loss-mistakes/)
 - [7 Reasons Not to Diet ...](https://diet.allwomenstalk.com/7-reasons-not-to-diet/)
 - [10 Foods to Avoid While Dieting ...](https://diet.allwomenstalk.com/foods-to-avoid-while-dieting/)
 

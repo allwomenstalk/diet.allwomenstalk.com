@@ -46,16 +46,16 @@ There are a number of reasons why diets fail - and many of them do. Some women s
 
 ## Related Posts
 
-- [a food label ingredient list reads](https://diet.allwomenstalk.com/quick-ways-to-read-a-food-label-to-tell-if-its-healthy-or-not/)
-- [how to get back on track after binge eating](https://diet.allwomenstalk.com/ways-to-get-back-on-track-after-binge-eating-and-start-feeling-great-again/)
-- [how to stop fast food addiction](https://diet.allwomenstalk.com/tips-for-beating-a-fast-food-addiction-starting-today/)
-- [cooking yourself thin recipes](https://diet.allwomenstalk.com/simple-ways-to-cook-yourself-thin/)
-- [diet on vacation](https://diet.allwomenstalk.com/tips-to-help-you-stick-to-your-diet-while-on-vacation/)
-- [vegan cat food study](https://food.allwomenstalk.com/points-to-remember-when-turning-vegan/)
-- [navigate grocery store](https://lifestyle.allwomenstalk.com/simple-steps-for-navigating-through-the-grocery-store/)
-- [how to include spinach in your diet](https://food.allwomenstalk.com/sneaky-ways-to-add-spinach-to-your-diet/)
-- [eat differently](https://diet.allwomenstalk.com/ways-to-deal-with-eating-differently-than-others/)
 - [eating out too much](https://lifestyle.allwomenstalk.com/fail-safe-ways-to-keep-from-overeating-at-restaurants/)
+- [navigate grocery store](https://lifestyle.allwomenstalk.com/simple-steps-for-navigating-through-the-grocery-store/)
+- [how to get back on track after binge eating](https://diet.allwomenstalk.com/ways-to-get-back-on-track-after-binge-eating-and-start-feeling-great-again/)
+- [vegan cat food study](https://food.allwomenstalk.com/points-to-remember-when-turning-vegan/)
+- [a food label ingredient list reads](https://diet.allwomenstalk.com/quick-ways-to-read-a-food-label-to-tell-if-its-healthy-or-not/)
+- [eat differently](https://diet.allwomenstalk.com/ways-to-deal-with-eating-differently-than-others/)
+- [diet on vacation](https://diet.allwomenstalk.com/tips-to-help-you-stick-to-your-diet-while-on-vacation/)
+- [cooking yourself thin recipes](https://diet.allwomenstalk.com/simple-ways-to-cook-yourself-thin/)
+- [how to include spinach in your diet](https://food.allwomenstalk.com/sneaky-ways-to-add-spinach-to-your-diet/)
+- [how to stop fast food addiction](https://diet.allwomenstalk.com/tips-for-beating-a-fast-food-addiction-starting-today/)
 - [8 Ways to Reward Yourself when on a Diet ...](https://weightloss.allwomenstalk.com/ways-to-reward-yourself-when-on-a-diet/)
 - [9 Tips That Make Dieting Go Smoothly ...](https://diet.allwomenstalk.com/tips-that-make-dieting-go-smoothly/)
 

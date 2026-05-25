@@ -46,16 +46,16 @@ See? There are so many places to find encouragement and inspiration when you’r
 
 ## Related Posts
 
-- [7 Ways to Tell Your Diet is Working ...](https://diet.allwomenstalk.com/ways-to-tell-your-diet-is-working/)
-- [8 Tips for Handling Emotinal Eating ...](https://health.allwomenstalk.com/tips-for-handling-emotinal-eating/)
-- [7 Healthy Foods to Indulge in While Dieting ...](https://diet.allwomenstalk.com/healthy-foods-to-indulge-in-while-dieting/)
-- [7 Ways to Add More Fiber to Your Diet ...](https://health.allwomenstalk.com/ways-to-add-more-fiber-to-your-diet/)
-- [8 Ways to Be Better at Dieting ...](https://diet.allwomenstalk.com/ways-to-be-better-at-dieting/)
-- [7 Ways to Make Healthy Pasta ...](https://food.allwomenstalk.com/ways-to-make-healthy-pasta/)
 - [7 Tips to Stay Motivated to Be Healthy ...](https://health.allwomenstalk.com/tips-to-stay-motivated-to-be-healthy/)
 - [9 Tips for Dealing with Fussy Eaters ...](https://food.allwomenstalk.com/tips-for-dealing-with-fussy-eaters/)
-- [8 Smart Ways to Survive the Holidays without Gaini...](https://diet.allwomenstalk.com/smart-ways-to-survive-the-holidays-without-gaining-weight/)
+- [8 Tips for Handling Emotinal Eating ...](https://health.allwomenstalk.com/tips-for-handling-emotinal-eating/)
+- [8 Ways to Be Better at Dieting ...](https://diet.allwomenstalk.com/ways-to-be-better-at-dieting/)
 - [7 Tips on How to Recover from a Food Binge ...](https://health.allwomenstalk.com/tips-on-how-to-recover-from-a-food-binge/)
+- [8 Smart Ways to Survive the Holidays without Gaini...](https://diet.allwomenstalk.com/smart-ways-to-survive-the-holidays-without-gaining-weight/)
+- [7 Healthy Foods to Indulge in While Dieting ...](https://diet.allwomenstalk.com/healthy-foods-to-indulge-in-while-dieting/)
+- [7 Ways to Tell Your Diet is Working ...](https://diet.allwomenstalk.com/ways-to-tell-your-diet-is-working/)
+- [7 Ways to Add More Fiber to Your Diet ...](https://health.allwomenstalk.com/ways-to-add-more-fiber-to-your-diet/)
+- [7 Ways to Make Healthy Pasta ...](https://food.allwomenstalk.com/ways-to-make-healthy-pasta/)
 - [8 Ways to Reward Yourself when on a Diet ...](https://weightloss.allwomenstalk.com/ways-to-reward-yourself-when-on-a-diet/)
 - [8 Ways to Start a Healthy Lifestyle ...](https://diet.allwomenstalk.com/ways-to-start-a-healthy-lifestyle/)
 

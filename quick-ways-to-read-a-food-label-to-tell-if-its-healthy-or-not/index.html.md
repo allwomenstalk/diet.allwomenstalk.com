@@ -42,16 +42,16 @@ Did you notice I didn’t say to look at the fat grams on a label? While I think
 
 ## Related Posts
 
-- [eating healthy in disney world](https://food.allwomenstalk.com/ways-to-eat-healthy-at-disney-world/)
-- [tricks for eating less](https://diet.allwomenstalk.com/tricks-to-help-you-eat-less-all-day-long/)
+- [how to avoid food temptation](https://diet.allwomenstalk.com/ways-to-resist-temptation-when-it-comes-to-food/)
 - [how to stop fast food addiction](https://diet.allwomenstalk.com/tips-for-beating-a-fast-food-addiction-starting-today/)
+- [eating healthy in disney world](https://food.allwomenstalk.com/ways-to-eat-healthy-at-disney-world/)
 - [coconut flour side effects](https://health.allwomenstalk.com/ways-coconut-flour-can-help-you-ditch-those-sugar-cravings/)
-- [how to get your mind off eating](https://diet.allwomenstalk.com/ways-to-take-your-mind-off-food-when-youre-not-really-hungry/)
-- [navigate grocery store](https://lifestyle.allwomenstalk.com/simple-steps-for-navigating-through-the-grocery-store/)
 - [eat differently](https://diet.allwomenstalk.com/ways-to-deal-with-eating-differently-than-others/)
 - [cooking yourself thin recipes](https://diet.allwomenstalk.com/simple-ways-to-cook-yourself-thin/)
-- [how to avoid food temptation](https://diet.allwomenstalk.com/ways-to-resist-temptation-when-it-comes-to-food/)
 - [apple festival chicago](https://food.allwomenstalk.com/different-ways-to-eat-an-apple-a-day/)
+- [navigate grocery store](https://lifestyle.allwomenstalk.com/simple-steps-for-navigating-through-the-grocery-store/)
+- [tricks for eating less](https://diet.allwomenstalk.com/tricks-to-help-you-eat-less-all-day-long/)
+- [how to get your mind off eating](https://diet.allwomenstalk.com/ways-to-take-your-mind-off-food-when-youre-not-really-hungry/)
 - [10 Tips on How to Read Food Labels ...](https://allwomenstalk.com/10-tips-on-how-to-read-food-labels/)
 - [7 Tips for Healthy Eating on the Go ...](https://allwomenstalk.com/tips-for-healthy-eating-on-the-go/)
 

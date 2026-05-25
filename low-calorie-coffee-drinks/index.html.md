@@ -75,16 +75,16 @@ Top Photo Credit: [\[Katsumi\]](https://www.flickr.com/photos/igarashi/369750475
 
 ## Related Posts
 
-- [low calorie hot alcoholic drinks](https://food.allwomenstalk.com/surprisingly-healthy-cocktails-to-sip-on-this-winter/)
 - [spice up hot chocolate](https://cooking.allwomenstalk.com/quick-ways-to-jazz-up-hot-chocolate/)
 - [sensationally delicious](https://food.allwomenstalk.com/fab-delicious-party-cocktail-recipes/)
-- [7 Steps to a Delicious Iced Coffee ...](https://cooking.allwomenstalk.com/steps-to-a-delicious-iced-coffee/)
 - [hot toddy for sleep](https://cooking.allwomenstalk.com/best-hot-drinks-for-bedtime/)
-- [simply spritzer](https://cooking.allwomenstalk.com/cool-summer-wine-spritzer-recipes-to-try/)
-- [funny bloody mary quotes](https://food.allwomenstalk.com/chillingly-spooky-but-outrageously-fabulous-cocktail-recipes/)
-- [drinks that are healthy and taste good](https://cooking.allwomenstalk.com/9-healthy-drinks-you-can-add-to-your-diet/)
-- [7 Tips for Making Sun Tea ...](https://cooking.allwomenstalk.com/tips-for-making-sun-tea/)
 - [pulse and cocktail hull](https://cooking.allwomenstalk.com/steps-to-a-delicious-home-made-daiquiri/)
+- [funny bloody mary quotes](https://food.allwomenstalk.com/chillingly-spooky-but-outrageously-fabulous-cocktail-recipes/)
+- [7 Tips for Making Sun Tea ...](https://cooking.allwomenstalk.com/tips-for-making-sun-tea/)
+- [simply spritzer](https://cooking.allwomenstalk.com/cool-summer-wine-spritzer-recipes-to-try/)
+- [7 Steps to a Delicious Iced Coffee ...](https://cooking.allwomenstalk.com/steps-to-a-delicious-iced-coffee/)
+- [low calorie hot alcoholic drinks](https://food.allwomenstalk.com/surprisingly-healthy-cocktails-to-sip-on-this-winter/)
+- [drinks that are healthy and taste good](https://cooking.allwomenstalk.com/9-healthy-drinks-you-can-add-to-your-diet/)
 - [7 Foods with Least Calories ...](https://weightloss.allwomenstalk.com/foods-with-least-calories/)
 - [7 Ultra-Slimming Smoothies ...](https://allwomenstalk.com/7-ultra-slimming-smoothies/)
 

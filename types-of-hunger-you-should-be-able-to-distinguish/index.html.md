@@ -50,16 +50,16 @@ I found this quite fascinating. I’d love to know if you are prone to any of th
 
 ## Related Posts
 
-- [156 calories](https://food.allwomenstalk.com/youll-learn-so-much-from-these-calorie-infographics/)
-- [low calorie salad toppers](https://food.allwomenstalk.com/salad-toppings-to-stay-away-from-if-trying-to-lose-weight/)
-- [low-fiber restaurant food](https://food.allwomenstalk.com/foods-to-avoid-if-youre-on-a-low-fiber-diet/)
-- [weight loss tips for college students](https://weightloss.allwomenstalk.com/why-losing-weight-is-such-a-struggle-for-college-students/)
-- [what fruits to avoid to lose weight](https://food.allwomenstalk.com/avoid-these-high-calorie-fruits-to-lose-weight/)
-- [is macaroni and cheese good for acid reflux](https://food.allwomenstalk.com/fatty-foods-that-will-trigger-heartburn-or-at-least-ruin-your-diet/)
-- [orthorexics](https://health.allwomenstalk.com/eating-disorder-alert-see-if-you-could-be-orthorexic/)
-- [does the color of food affect your appetite](https://food.allwomenstalk.com/did-you-know-that-these-colors-affect-your-appetite/)
-- [paula deen spanish rice](https://food.allwomenstalk.com/heres-why-you-should-never-run-out-of-rice/)
 - [is skipping meals bad](https://health.allwomenstalk.com/you-need-to-know-why-skipping-meals-is-bad-for-your-health/)
+- [does the color of food affect your appetite](https://food.allwomenstalk.com/did-you-know-that-these-colors-affect-your-appetite/)
+- [weight loss tips for college students](https://weightloss.allwomenstalk.com/why-losing-weight-is-such-a-struggle-for-college-students/)
+- [156 calories](https://food.allwomenstalk.com/youll-learn-so-much-from-these-calorie-infographics/)
+- [paula deen spanish rice](https://food.allwomenstalk.com/heres-why-you-should-never-run-out-of-rice/)
+- [orthorexics](https://health.allwomenstalk.com/eating-disorder-alert-see-if-you-could-be-orthorexic/)
+- [is macaroni and cheese good for acid reflux](https://food.allwomenstalk.com/fatty-foods-that-will-trigger-heartburn-or-at-least-ruin-your-diet/)
+- [what fruits to avoid to lose weight](https://food.allwomenstalk.com/avoid-these-high-calorie-fruits-to-lose-weight/)
+- [low-fiber restaurant food](https://food.allwomenstalk.com/foods-to-avoid-if-youre-on-a-low-fiber-diet/)
+- [low calorie salad toppers](https://food.allwomenstalk.com/salad-toppings-to-stay-away-from-if-trying-to-lose-weight/)
 - [8 Signs You Have an Overeating Problem ...](https://allwomenstalk.com/8-signs-you-have-an-overeating-problem/)
 - [8 Things to Help Suppress Your Appetite ...](https://allwomenstalk.com/8-things-to-help-suppress-your-appetite/)
 

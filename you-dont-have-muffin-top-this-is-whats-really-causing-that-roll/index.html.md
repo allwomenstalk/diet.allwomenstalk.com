@@ -42,16 +42,16 @@ This isn't, of course, a complete list... what else could be the root cause of a
 
 ## Related Posts
 
-- [fitspiration](https://fitness.allwomenstalk.com/how-to-use-fitspiration-the-wrong-way/)
-- [how many carbs is too much](https://diet.allwomenstalk.com/signs-youre-eating-too-many-carbs/)
 - [weight loss excuses](https://weightloss.allwomenstalk.com/excuses-you-hide-behind-when-youre-not-losing-weight-that-need-to-end/)
-- [scared to date](https://love.allwomenstalk.com/why-you-shouldnt-be-scared-to-eat-what-you-want-on-a-first-date/)
-- [highest sugar fruits](https://weightloss.allwomenstalk.com/insanely-high-in-sugar-fruits-all-slimming-girls-should-avoid/)
 - [fitness gurus](https://fitness.allwomenstalk.com/why-following-fitness-gurus-might-not-be-as-smart-as-you-think/)
-- [what not to eat before a workout](https://food.allwomenstalk.com/foods-you-should-never-eat-before-a-workout/)
 - [tami torossian](https://weightloss.allwomenstalk.com/why-you-should-count-nutrients-not-calories/)
-- [why is dairy bad for you when trying to lose weigh...](https://diet.allwomenstalk.com/important-reasons-to-avoid-dairy-when-youre-trying-to-lose-weight/)
+- [fitspiration](https://fitness.allwomenstalk.com/how-to-use-fitspiration-the-wrong-way/)
 - [common weight loss mistakes](https://weightloss.allwomenstalk.com/the-most-common-weight-loss-mistakes/)
+- [scared to date](https://love.allwomenstalk.com/why-you-shouldnt-be-scared-to-eat-what-you-want-on-a-first-date/)
+- [why is dairy bad for you when trying to lose weigh...](https://diet.allwomenstalk.com/important-reasons-to-avoid-dairy-when-youre-trying-to-lose-weight/)
+- [what not to eat before a workout](https://food.allwomenstalk.com/foods-you-should-never-eat-before-a-workout/)
+- [highest sugar fruits](https://weightloss.allwomenstalk.com/insanely-high-in-sugar-fruits-all-slimming-girls-should-avoid/)
+- [how many carbs is too much](https://diet.allwomenstalk.com/signs-youre-eating-too-many-carbs/)
 - [7 Reasons You Might Be Struggling to Lose Weight ....](https://weightloss.allwomenstalk.com/7-reasons-you-might-be-struggling-to-lose-weight/)
 - [10 Reasons Why You Are Not Losing Weight ...](https://weightloss.allwomenstalk.com/reasons-why-you-are-not-losing-weight/)
 

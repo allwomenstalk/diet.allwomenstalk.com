@@ -42,16 +42,16 @@ There’s plenty of diets out there, and sometimes it can be hard to weed out th
 
 ## Related Posts
 
-- [7 Easy and Effective Ways to Reduce Food Waste ...](https://food.allwomenstalk.com/easy-and-effective-ways-to-reduce-food-waste/)
-- [7 Delicious Steps to Healthier Eating All Year Lon...](https://food.allwomenstalk.com/delicious-steps-to-healthier-eating-all-year-long/)
 - [7 Things That Make a Healthy Diet ...](https://diet.allwomenstalk.com/things-that-make-a-healthy-diet/)
+- [7 Ways to Change Unhealthy Eating Habits ...](https://diet.allwomenstalk.com/ways-to-change-unhealthy-eating-habits/)
+- [7 Marvelous Methods to Curb Your Appetite Naturall...](https://weightloss.allwomenstalk.com/marvelous-methods-to-curb-your-appetite-naturally/)
 - [7 Ways to Add Color to Your Diet to Make Your Meal...](https://food.allwomenstalk.com/ways-to-add-color-to-your-diet-to-make-your-meals-healthier/)
+- [7 Celebrity Cooking Tips to Make You a Healthier C...](https://food.allwomenstalk.com/celebrity-cooking-tips-to-make-you-a-healthier-chef/)
+- [breaking food adictions](https://health.allwomenstalk.com/ways-to-break-your-food-addiction-for-good/)
 - [controlling portions](https://diet.allwomenstalk.com/tips-for-controlling-your-portion-sizes/)
 - [How do I Stop Binge Eating](https://diet.allwomenstalk.com/easy-ways-to-control-overeating-and-stop-binging/)
-- [breaking food adictions](https://health.allwomenstalk.com/ways-to-break-your-food-addiction-for-good/)
-- [7 Marvelous Methods to Curb Your Appetite Naturall...](https://weightloss.allwomenstalk.com/marvelous-methods-to-curb-your-appetite-naturally/)
-- [7 Ways to Change Unhealthy Eating Habits ...](https://diet.allwomenstalk.com/ways-to-change-unhealthy-eating-habits/)
-- [7 Celebrity Cooking Tips to Make You a Healthier C...](https://food.allwomenstalk.com/celebrity-cooking-tips-to-make-you-a-healthier-chef/)
+- [7 Delicious Steps to Healthier Eating All Year Lon...](https://food.allwomenstalk.com/delicious-steps-to-healthier-eating-all-year-long/)
+- [7 Easy and Effective Ways to Reduce Food Waste ...](https://food.allwomenstalk.com/easy-and-effective-ways-to-reduce-food-waste/)
 - [7 Tips for Choosing a Diet Buddy ...](https://diet.allwomenstalk.com/tips-for-choosing-a-diet-buddy/)
 - [11 Tips on How to Keep to Your Diet ...](https://allwomenstalk.com/tips-on-how-to-keep-to-your-diet/)
 

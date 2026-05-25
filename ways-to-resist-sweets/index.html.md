@@ -30,15 +30,15 @@ Try out this method I used and let me know if it works for you too. Also, if you
 
 ## Related Posts
 
-- [stay healthy while you party](https://health.allwomenstalk.com/how-to-stay-healthy-during-party-season/)
 - [track their parmesans by microchips](https://food.allwomenstalk.com/healthy-chip-recipes/)
 - [healthiest cheeses to eat](https://food.allwomenstalk.com/healthy-ways-to-eat-cheese/)
-- [maintaining water balance](https://health.allwomenstalk.com/how-to-maintain-body-water-balance-throughout-the-day/)
 - [easy ways to be healthy](https://health.allwomenstalk.com/easy-peasy-ways-to-stay-healthy/)
-- [how to lose weight for busy students](https://diet.allwomenstalk.com/how-to-eat-a-balanced-diet-for-busy-students/)
 - [diet plan for family](https://diet.allwomenstalk.com/exceptional-ways-to-develop-a-healthy-eating-plan-for-the-whole-family/)
-- [8 Easy Tips to Improve Your Meals and Eat Healthie...](https://diet.allwomenstalk.com/easy-tips-to-improve-your-meals-and-eat-healthier/)
 - [how to eat when broke](https://food.allwomenstalk.com/how-to-eat-on-a-dollar-a-day-for-broke-girls/)
+- [8 Easy Tips to Improve Your Meals and Eat Healthie...](https://diet.allwomenstalk.com/easy-tips-to-improve-your-meals-and-eat-healthier/)
+- [stay healthy while you party](https://health.allwomenstalk.com/how-to-stay-healthy-during-party-season/)
+- [how to lose weight for busy students](https://diet.allwomenstalk.com/how-to-eat-a-balanced-diet-for-busy-students/)
+- [maintaining water balance](https://health.allwomenstalk.com/how-to-maintain-body-water-balance-throughout-the-day/)
 - [ways to stop cravings](https://diet.allwomenstalk.com/ways-to-stop-cravings-for-unhealthy-foods-and-sugar/)
 - [7 Ways to Control Your Cravings ...](https://cooking.allwomenstalk.com/7-ways-to-control-your-cravings/)
 - [5 Tips on Resisting the Food Temptation ...](https://allwomenstalk.com/resisting-the-food-temptation/)

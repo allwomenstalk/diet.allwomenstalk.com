@@ -42,16 +42,16 @@ These tips can help you make sure the calorie count stays low in your smoothies.
 
 ## Related Posts
 
-- [Heres What You Should Reward Yourself with Instead...](https://weightloss.allwomenstalk.com/heres-what-you-should-reward-yourself-with-instead-of-food/)
-- [The 7 Habits of Healthy Eaters That You Need to Kn...](https://diet.allwomenstalk.com/the-habits-of-healthy-eaters-that-you-need-to-know/)
-- [7 Sneaky Ways to Add More Water into Your Diet ...](https://food.allwomenstalk.com/sneaky-ways-to-add-more-water-into-your-diet/)
-- [Heres How You Can Enjoy Your Pasta without Sabotag...](https://food.allwomenstalk.com/heres-how-you-can-enjoy-your-pasta-without-sabotaging-your-diet/)
-- [7 Ways to Get the Most out of Your Weekly Servings...](https://food.allwomenstalk.com/ways-to-get-the-most-out-of-your-weekly-servings-of-fish/)
-- [craving bl](https://food.allwomenstalk.com/heres-how-to-handle-food-cravings-without-starving-yourself/)
-- [How do You Avoid Unhealthy Temptations at the Groc...](https://diet.allwomenstalk.com/how-do-you-avoid-unhealthy-temptations-at-the-grocery-store/)
 - [How to Rid Yourself of Crankiness by Changing Your...](https://diet.allwomenstalk.com/how-to-rid-yourself-of-crankiness-by-changing-your-diet/)
-- [How to Stay Your Healthiest when Going through the...](https://food.allwomenstalk.com/how-to-stay-your-healthiest-when-going-through-the-drive-thru/)
 - [Back Away from the Fridge: 7 Ways to Prevent Stres...](https://health.allwomenstalk.com/back-away-from-the-fridge-ways-to-prevent-stress-eating/)
+- [craving bl](https://food.allwomenstalk.com/heres-how-to-handle-food-cravings-without-starving-yourself/)
+- [The 7 Habits of Healthy Eaters That You Need to Kn...](https://diet.allwomenstalk.com/the-habits-of-healthy-eaters-that-you-need-to-know/)
+- [Heres What You Should Reward Yourself with Instead...](https://weightloss.allwomenstalk.com/heres-what-you-should-reward-yourself-with-instead-of-food/)
+- [How do You Avoid Unhealthy Temptations at the Groc...](https://diet.allwomenstalk.com/how-do-you-avoid-unhealthy-temptations-at-the-grocery-store/)
+- [How to Stay Your Healthiest when Going through the...](https://food.allwomenstalk.com/how-to-stay-your-healthiest-when-going-through-the-drive-thru/)
+- [Heres How You Can Enjoy Your Pasta without Sabotag...](https://food.allwomenstalk.com/heres-how-you-can-enjoy-your-pasta-without-sabotaging-your-diet/)
+- [7 Sneaky Ways to Add More Water into Your Diet ...](https://food.allwomenstalk.com/sneaky-ways-to-add-more-water-into-your-diet/)
+- [7 Ways to Get the Most out of Your Weekly Servings...](https://food.allwomenstalk.com/ways-to-get-the-most-out-of-your-weekly-servings-of-fish/)
 - [8 Tips for Counting Calories ...](https://weightloss.allwomenstalk.com/tips-for-counting-calories/)
 - [23 Smoothies That Aid in Weight Loss ...](https://weightloss.allwomenstalk.com/smoothies-that-aid-in-weight-loss/)
 

@@ -42,16 +42,16 @@ There are plenty of ways to make Thanksgiving healthy this year! Don’t think t
 
 ## Related Posts
 
+- [7 Healthy Cooking Resolutions to Make in 2019 ...](https://food.allwomenstalk.com/healthy-cooking-resolutions-to-make-in/)
+- [7 Tips for Vegans Going to Christmas Parties ...](https://lifestyle.allwomenstalk.com/tips-for-vegans-going-to-christmas-parties/)
+- [7 Tips on Hosting a Healthy Holiday Party ...](https://health.allwomenstalk.com/tips-on-hosting-a-healthy-holiday-party/)
+- [7 Healthy Meal Ideas to Start off 2019 ...](https://food.allwomenstalk.com/healthy-meal-ideas-to-start-off/)
+- [How to Prevent Overeating after Working out ...](https://diet.allwomenstalk.com/tips-to-prevent-overeating-after-working-out/)
+- [7 Healthy Spending Habits ...](https://money.allwomenstalk.com/healthy-spending-habits/)
+- [cut down on calorie intake](https://weightloss.allwomenstalk.com/ways-to-reduce-your-calorie-intake-over-christmas/)
 - [7 Ways to Say No to Food Peer Pressure during the ...](https://diet.allwomenstalk.com/ways-to-say-no-to-food-peer-pressure-during-the-holidays/)
 - [7 Simple Ways to Prevent Food Poisoning ...](https://health.allwomenstalk.com/simple-ways-to-prevent-food-poisoning/)
-- [7 Healthy Meal Ideas to Start off 2019 ...](https://food.allwomenstalk.com/healthy-meal-ideas-to-start-off/)
-- [cut down on calorie intake](https://weightloss.allwomenstalk.com/ways-to-reduce-your-calorie-intake-over-christmas/)
-- [7 Healthy Cooking Resolutions to Make in 2019 ...](https://food.allwomenstalk.com/healthy-cooking-resolutions-to-make-in/)
 - [sticking to diet](https://diet.allwomenstalk.com/tips-for-sticking-to-your-diet-this-year/)
-- [7 Tips on Hosting a Healthy Holiday Party ...](https://health.allwomenstalk.com/tips-on-hosting-a-healthy-holiday-party/)
-- [7 Healthy Spending Habits ...](https://money.allwomenstalk.com/healthy-spending-habits/)
-- [How to Prevent Overeating after Working out ...](https://diet.allwomenstalk.com/tips-to-prevent-overeating-after-working-out/)
-- [7 Tips for Vegans Going to Christmas Parties ...](https://lifestyle.allwomenstalk.com/tips-for-vegans-going-to-christmas-parties/)
 - [7 Tips to Maintain Good Health ...](https://health.allwomenstalk.com/tips-to-maintain-good-health/)
 - [10 Things to Know to Stay Healthy ...](https://health.allwomenstalk.com/things-to-know-to-stay-healthy/)
 

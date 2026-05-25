@@ -42,16 +42,16 @@ When you're having a great time at college and busy with your studies, healthy e
 
 ## Related Posts
 
-- [the seven rules of gut health](https://health.allwomenstalk.com/rules-for-promoting-gut-health/)
-- [how to eat a good breakfast](https://food.allwomenstalk.com/ways-to-make-sure-you-eat-breakfast-every-morning/)
-- [slim sandwich](https://food.allwomenstalk.com/easy-tweaks-to-slim-your-sandwich/)
 - [foraging trend](https://food.allwomenstalk.com/tips-for-the-foraging-food-trend/)
-- [too tired to cook](https://food.allwomenstalk.com/too-tired-to-cook-heres-how-to-eat-healthy-when-you-go-out/)
 - [ive been sad trying to get a grip](https://diet.allwomenstalk.com/ways-to-get-a-grip-on-emotional-eating/)
-- [low calorie party food](https://food.allwomenstalk.com/low-calorie-party-snacks-for-the-holidays/)
-- [i stopped eating meat and my hair is falling out](https://food.allwomenstalk.com/how-to-become-a-vegetarian-and-avoid-those-pesky-meat-cravings/)
-- [500 calorie meals fast food](https://food.allwomenstalk.com/ways-to-make-lower-calorie-versions-of-fast-food-treats/)
 - [how to trick your stomach into feeling full](https://weightloss.allwomenstalk.com/outsmart-your-tummy-with-these-ways-to-feel-full-faster/)
+- [i stopped eating meat and my hair is falling out](https://food.allwomenstalk.com/how-to-become-a-vegetarian-and-avoid-those-pesky-meat-cravings/)
+- [low calorie party food](https://food.allwomenstalk.com/low-calorie-party-snacks-for-the-holidays/)
+- [how to eat a good breakfast](https://food.allwomenstalk.com/ways-to-make-sure-you-eat-breakfast-every-morning/)
+- [too tired to cook](https://food.allwomenstalk.com/too-tired-to-cook-heres-how-to-eat-healthy-when-you-go-out/)
+- [slim sandwich](https://food.allwomenstalk.com/easy-tweaks-to-slim-your-sandwich/)
+- [the seven rules of gut health](https://health.allwomenstalk.com/rules-for-promoting-gut-health/)
+- [500 calorie meals fast food](https://food.allwomenstalk.com/ways-to-make-lower-calorie-versions-of-fast-food-treats/)
 - [7 Tips to Get Your Kids Eating Healthy ...](https://parenting.allwomenstalk.com/7-tips-to-get-your-kids-eating-healthy/)
 - [10 Ways to Eat More Healthy ...](https://allwomenstalk.com/10-ways-to-eat-more-healthy/)
 

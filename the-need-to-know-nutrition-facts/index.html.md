@@ -56,16 +56,16 @@ What new info about nutrition, diet and food have you heard lately?
 
 ## Related Posts
 
-- [apple grocery list](https://food.allwomenstalk.com/crisp-and-crunchy-apples-to-put-on-your-grocery-list/)
-- [trail mix ingredients ideas](https://food.allwomenstalk.com/having-a-snack-attack-healthier-trail-mix-recipes-to-diy/)
-- [pizza or pitza](https://food.allwomenstalk.com/these-pitzas-are-healthier-than-regular-pizzas/)
-- [what foods have good carbs](https://food.allwomenstalk.com/healthy-carbs-you-always-want-to-keep-in-the-fridge/)
-- [good food for women](https://food.allwomenstalk.com/these-foods-are-scientifically-proven-to-make-you-happy/)
-- [student meals for one](https://food.allwomenstalk.com/delicious-student-meals-that-are-budget-friendly-and-healthy/)
-- [what are the 7 foods you should eat every day](https://food.allwomenstalk.com/foods-you-should-be-eating-each-day/)
-- [what is nnn](https://food.allwomenstalk.com/the-ultimate-guide-to-nuts/)
-- [noisy foods](https://food.allwomenstalk.com/quiet-snacks-that-wont-draw-attention-during-class/)
 - [no calorie condiments](https://diet.allwomenstalk.com/low-calorie-condiments-that-will-add-flavor-to-any-meal/)
+- [pizza or pitza](https://food.allwomenstalk.com/these-pitzas-are-healthier-than-regular-pizzas/)
+- [noisy foods](https://food.allwomenstalk.com/quiet-snacks-that-wont-draw-attention-during-class/)
+- [good food for women](https://food.allwomenstalk.com/these-foods-are-scientifically-proven-to-make-you-happy/)
+- [what are the 7 foods you should eat every day](https://food.allwomenstalk.com/foods-you-should-be-eating-each-day/)
+- [trail mix ingredients ideas](https://food.allwomenstalk.com/having-a-snack-attack-healthier-trail-mix-recipes-to-diy/)
+- [apple grocery list](https://food.allwomenstalk.com/crisp-and-crunchy-apples-to-put-on-your-grocery-list/)
+- [student meals for one](https://food.allwomenstalk.com/delicious-student-meals-that-are-budget-friendly-and-healthy/)
+- [what is nnn](https://food.allwomenstalk.com/the-ultimate-guide-to-nuts/)
+- [what foods have good carbs](https://food.allwomenstalk.com/healthy-carbs-you-always-want-to-keep-in-the-fridge/)
 - [10 Things to Know to Stay Healthy ...](https://health.allwomenstalk.com/things-to-know-to-stay-healthy/)
 - [10 Facts about Fiber You Should Know ...](https://allwomenstalk.com/10-facts-about-fiber-you-should-know/)
 

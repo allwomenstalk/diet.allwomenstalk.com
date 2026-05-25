@@ -192,16 +192,16 @@ We've probably all been there at one point or another-salads, chicken, veggies, 
 
 ## Related Posts
 
-- [Plum Baby Organic Superfoods](https://allwomenstalk.com/plum-baby-organic-superfoods/)
-- [Top 10 Cancer Fighting Foods](https://allwomenstalk.com/top-10-cancer-fighting-foods/)
-- [foods to avoid if you want clear skin](https://allwomenstalk.com/clear-skin-diet-foods-to-avoid/)
-- [california whey](https://allwomenstalk.com/animal-free-whey-protein-california-performance-co/)
-- [fall foods for kids](https://food.allwomenstalk.com/fun-fall-foods-your-kids-will-love/)
-- [benefits of smoked salmon](https://diet.allwomenstalk.com/is-smoked-salmon-healthy-smokeysteakranch/)
 - [And Eating It Too ...](https://allwomenstalk.com/and-eating-it-too/)
+- [Plum Baby Organic Superfoods](https://allwomenstalk.com/plum-baby-organic-superfoods/)
+- [benefits of smoked salmon](https://diet.allwomenstalk.com/is-smoked-salmon-healthy-smokeysteakranch/)
+- [fall foods for kids](https://food.allwomenstalk.com/fun-fall-foods-your-kids-will-love/)
 - [cheapest meal replacement shakes](https://health.allwomenstalk.com/best-meal-replacement-shakes-for-women/)
 - [What Exactly Are Superfoods](https://allwomenstalk.com/what-exactly-are-superfoods/)
+- [foods to avoid if you want clear skin](https://allwomenstalk.com/clear-skin-diet-foods-to-avoid/)
+- [california whey](https://allwomenstalk.com/animal-free-whey-protein-california-performance-co/)
 - [Foods to Snack on Even when Youre Dieting ...](https://allwomenstalk.com/foods-to-snack-on-even-when-youre-dieting/)
+- [Top 10 Cancer Fighting Foods](https://allwomenstalk.com/top-10-cancer-fighting-foods/)
 - [10 Yummy Salads to Cool down Your Summer ...](https://cooking.allwomenstalk.com/10-yummy-salads-to-cool-down-your-summer/)
 - [7 Delightfully Easy and Unbelievably Tasty Salad R...](https://food.allwomenstalk.com/delightfully-easy-and-unbelievably-tasty-salad-recipes/)
 

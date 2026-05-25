@@ -118,15 +118,15 @@ Do you restrict your carbs?
 
 ## Related Posts
 
-- [7 Ways to Eat Comfort Food without Gaining Weight ...](https://weightloss.allwomenstalk.com/ways-to-eat-comfort-food-without-gaining-weight/)
-- [These 7 Tips Will Help You Tackle Comfort Food Cra...](https://diet.allwomenstalk.com/these-tips-will-help-you-tackle-comfort-food-cravings/)
-- [How to Start the New Year off on a Healthier Foot ...](https://health.allwomenstalk.com/how-to-start-the-new-year-off-on-a-healthier-foot/)
+- [How to Cut down on Sugar during the Holidays ...](https://diet.allwomenstalk.com/how-to-cut-down-on-sugar-during-the-holidays/)
+- [Make These 7 Dietary Changes for Better Focus ...](https://diet.allwomenstalk.com/make-these-dietary-changes-for-better-focus/)
 - [7 Tips to Snack Smarter and Gain Less ...](https://food.allwomenstalk.com/tips-to-snack-smarter-and-gain-less/)
+- [How to Start the New Year off on a Healthier Foot ...](https://health.allwomenstalk.com/how-to-start-the-new-year-off-on-a-healthier-foot/)
+- [7 Dietary Rules You Dont Want to Forget ...](https://diet.allwomenstalk.com/dietary-rules-you-dont-want-to-forget/)
 - [Eat Healthier by Setting These New Years Resolutio...](https://diet.allwomenstalk.com/eat-healthier-by-setting-these-new-years-resolutions-for-yourself/)
 - [How to Stay Healthy around Delish Thanksgiving Foo...](https://health.allwomenstalk.com/how-to-stay-healthy-this-thanksgiving/)
-- [Make These 7 Dietary Changes for Better Focus ...](https://diet.allwomenstalk.com/make-these-dietary-changes-for-better-focus/)
-- [7 Dietary Rules You Dont Want to Forget ...](https://diet.allwomenstalk.com/dietary-rules-you-dont-want-to-forget/)
-- [How to Cut down on Sugar during the Holidays ...](https://diet.allwomenstalk.com/how-to-cut-down-on-sugar-during-the-holidays/)
+- [7 Ways to Eat Comfort Food without Gaining Weight ...](https://weightloss.allwomenstalk.com/ways-to-eat-comfort-food-without-gaining-weight/)
+- [These 7 Tips Will Help You Tackle Comfort Food Cra...](https://diet.allwomenstalk.com/these-tips-will-help-you-tackle-comfort-food-cravings/)
 - [How to Stick to Your New Years Resolution of Eatin...](https://diet.allwomenstalk.com/how-to-stick-to-your-new-years-resolution-of-eating-more-healthily/)
 - [7 Smart Strategies to Help You Fight Carb Cravings...](https://diet.allwomenstalk.com/smart-strategies-to-help-you-fight-carb-cravings/)
 - [7 Scrumptious Carbs That Will Help You Shed Pounds...](https://weightloss.allwomenstalk.com/scrumptious-carbs-that-will-help-you-shed-pounds/)

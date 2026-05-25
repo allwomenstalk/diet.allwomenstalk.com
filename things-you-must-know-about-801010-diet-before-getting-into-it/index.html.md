@@ -42,16 +42,16 @@ The 80/10/10 diet has blown up on the Internet and it’s gaining a lot of atten
 
 ## Related Posts
 
-- [156 calories](https://food.allwomenstalk.com/youll-learn-so-much-from-these-calorie-infographics/)
-- [low-fiber restaurant food](https://food.allwomenstalk.com/foods-to-avoid-if-youre-on-a-low-fiber-diet/)
-- [is macaroni and cheese good for acid reflux](https://food.allwomenstalk.com/fatty-foods-that-will-trigger-heartburn-or-at-least-ruin-your-diet/)
 - [strong skinny people](https://fitness.allwomenstalk.com/reasons-to-focus-on-being-strong-instead-of-skinny/)
-- [orthorexics](https://health.allwomenstalk.com/eating-disorder-alert-see-if-you-could-be-orthorexic/)
-- [does the color of food affect your appetite](https://food.allwomenstalk.com/did-you-know-that-these-colors-affect-your-appetite/)
+- [why cant i get a six pack](https://fitness.allwomenstalk.com/reasons-six-pack-abs-are-really-overrated/)
 - [is skipping meals bad](https://health.allwomenstalk.com/you-need-to-know-why-skipping-meals-is-bad-for-your-health/)
 - [paula deen spanish rice](https://food.allwomenstalk.com/heres-why-you-should-never-run-out-of-rice/)
-- [why cant i get a six pack](https://fitness.allwomenstalk.com/reasons-six-pack-abs-are-really-overrated/)
+- [does the color of food affect your appetite](https://food.allwomenstalk.com/did-you-know-that-these-colors-affect-your-appetite/)
+- [orthorexics](https://health.allwomenstalk.com/eating-disorder-alert-see-if-you-could-be-orthorexic/)
+- [156 calories](https://food.allwomenstalk.com/youll-learn-so-much-from-these-calorie-infographics/)
+- [is macaroni and cheese good for acid reflux](https://food.allwomenstalk.com/fatty-foods-that-will-trigger-heartburn-or-at-least-ruin-your-diet/)
 - [kinds of hunger](https://diet.allwomenstalk.com/types-of-hunger-you-should-be-able-to-distinguish/)
+- [low-fiber restaurant food](https://food.allwomenstalk.com/foods-to-avoid-if-youre-on-a-low-fiber-diet/)
 - [10 Foods to Eat to Lose Weight ...](https://allwomenstalk.com/10-foods-to-eat-to-lose-weight/)
 - [10 Tricks for Eating Less ...](https://allwomenstalk.com/10-tricks-for-eating-less/)
 

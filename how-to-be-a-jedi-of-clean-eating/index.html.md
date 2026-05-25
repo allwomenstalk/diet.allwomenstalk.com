@@ -43,15 +43,15 @@ So how clean is your diet? Do you still have changes to make?
 ## Related Posts
 
 - [The Only 7 Tips You Need to Help Cut Back on Sugar...](https://diet.allwomenstalk.com/these-tips-are-all-you-need-to-cut-back-on-sugar/)
+- [Simple Ways to Eat Healthy for Girls Whose Friends...](https://diet.allwomenstalk.com/how-to-eat-healthy-when-all-your-friends-arent/)
 - [Ways to Beat Sugar Cravings for Women Severely Add...](https://diet.allwomenstalk.com/the-secret-to-beating-your-sugar-craving-is-simple/)
 - [7 Fab Activities to Try Instead of Stress Eating ....](https://diet.allwomenstalk.com/stop-stress-eating-by-doing-these-activities-instead/)
-- [Simple Ways to Eat Healthy for Girls Whose Friends...](https://diet.allwomenstalk.com/how-to-eat-healthy-when-all-your-friends-arent/)
-- [eat fruit gif](https://diet.allwomenstalk.com/be-smarter-about-the-way-you-eat-fruit/)
-- [Be Smarter about the Way You Eat Sugar ...](https://diet.allwomenstalk.com/be-smarter-about-the-way-you-eat-sugar/)
-- [7 Dietary Rules You Dont Want to Forget ...](https://diet.allwomenstalk.com/dietary-rules-you-dont-want-to-forget/)
 - [Be Smarter  about the Way You Eat Carbs ...](https://diet.allwomenstalk.com/be-smarter-about-the-way-you-eat-carbs/)
-- [how many calories does dabbing grease off pizza sa...](https://food.allwomenstalk.com/the-trick-to-eating-pizza-without-consuming-too-many-calories/)
+- [Be Smarter about the Way You Eat Sugar ...](https://diet.allwomenstalk.com/be-smarter-about-the-way-you-eat-sugar/)
+- [eat fruit gif](https://diet.allwomenstalk.com/be-smarter-about-the-way-you-eat-fruit/)
+- [7 Dietary Rules You Dont Want to Forget ...](https://diet.allwomenstalk.com/dietary-rules-you-dont-want-to-forget/)
 - [Make These 7 Dietary Changes for Better Focus ...](https://diet.allwomenstalk.com/make-these-dietary-changes-for-better-focus/)
+- [how many calories does dabbing grease off pizza sa...](https://food.allwomenstalk.com/the-trick-to-eating-pizza-without-consuming-too-many-calories/)
 - [7 Ways to Start Eating Clean ...](https://health.allwomenstalk.com/ways-to-start-eating-clean/)
 - [7 Helpful Hints on Starting a Clean Eating Diet .....](https://diet.allwomenstalk.com/helpful-hints-on-starting-a-clean-eating-diet/)
 

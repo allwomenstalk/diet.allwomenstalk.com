@@ -42,16 +42,16 @@ What’s your favorite way to eat a burger? Will you try any of these tips next 
 
 ## Related Posts
 
-- [i wait for you easy](https://food.allwomenstalk.com/wait-til-you-see-these-easy-hacks-to-make-your-food-healthier/)
-- [egg mufins](https://food.allwomenstalk.com/the-healthiest-ways-to-eat-an-egg-muffin/)
 - [ways to eat pizza](https://weightloss.allwomenstalk.com/tricks-to-consume-fewer-calories-when-eating-pizza/)
+- [eat clean challenge](https://diet.allwomenstalk.com/heres-how-to-challenge-yourself-to-eat-clean/)
 - [healthy recipe tips](https://diet.allwomenstalk.com/tips-for-healthier-cooking/)
 - [clean eating casseroles](https://weightloss.allwomenstalk.com/low-calorie-casseroles-thatll-let-you-stick-to-your-diet/)
-- [healthy food infographics](https://diet.allwomenstalk.com/healthy-eating-infographics-you-are-going-to-use-every-single-day/)
-- [healthiest snacks at movie theater](https://food.allwomenstalk.com/how-to-eat-healthy-at-the-movie-theater/)
 - [how to trick brain into feeling full](https://diet.allwomenstalk.com/ways-to-trick-your-brain-into-feeling-full/)
-- [eat clean challenge](https://diet.allwomenstalk.com/heres-how-to-challenge-yourself-to-eat-clean/)
+- [healthy food infographics](https://diet.allwomenstalk.com/healthy-eating-infographics-you-are-going-to-use-every-single-day/)
+- [egg mufins](https://food.allwomenstalk.com/the-healthiest-ways-to-eat-an-egg-muffin/)
 - [how to get your stomach to stop rumbling in class](https://health.allwomenstalk.com/how-to-stop-your-stomach-from-grumbling-in-quiet-places/)
+- [i wait for you easy](https://food.allwomenstalk.com/wait-til-you-see-these-easy-hacks-to-make-your-food-healthier/)
+- [healthiest snacks at movie theater](https://food.allwomenstalk.com/how-to-eat-healthy-at-the-movie-theater/)
 - [9 Helpful Tips for Eating out While on a Diet ...](https://diet.allwomenstalk.com/delicious-tips-for-eating-out-while-on-a-diet/)
 - [Too Tired to Cook Heres How to Eat Healthy when Yo...](https://food.allwomenstalk.com/too-tired-to-cook-heres-how-to-eat-healthy-when-you-go-out/)
 

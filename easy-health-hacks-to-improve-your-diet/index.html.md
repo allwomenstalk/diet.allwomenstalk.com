@@ -40,16 +40,16 @@ Restaurants can be very tempting, but save them for special occasions only and e
 
 ## Related Posts
 
-- [Tips  Tricks to Control Hunger ...](https://diet.allwomenstalk.com/tips-tricks-to-control-hunger/)
-- [Daily Habits to Keep if You Want to Be Healthy ...](https://health.allwomenstalk.com/daily-habits-to-keep-if-you-want-to-be-healthy/)
-- [Healthy Habits That Are Way Better than Crash Diet...](https://weightloss.allwomenstalk.com/healthy-habits-to-adopt-that-are-way-better-than-crash-diets/)
-- [Health Hacks to Improve Your Diet ...](https://diet.allwomenstalk.com/health-hacks-to-improve-your-diet/)
 - [Optimizing Your Nutrition ...](https://diet.allwomenstalk.com/optimum-nutrition-for-everyday-living/)
-- [Perfect Ways to Keep Your Snacks Guilt Free ...](https://diet.allwomenstalk.com/perfect-ways-to-keep-your-snacks-guilt-free/)
-- [How to Beat Your Sugar Cravings ...](https://diet.allwomenstalk.com/how-to-beat-your-sugar-cravings/)
-- [can your body reject junk food](https://diet.allwomenstalk.com/ways-to-train-your-brain-to-reject-junk-food/)
-- [Smaller Portions Are Better for Your Health Heres ...](https://diet.allwomenstalk.com/why-small-portions-are-better-for-your-health/)
 - [How to do a Food Detox the Right Way ...](https://diet.allwomenstalk.com/how-to-do-a-food-detox-the-right-way/)
+- [Healthy Habits That Are Way Better than Crash Diet...](https://weightloss.allwomenstalk.com/healthy-habits-to-adopt-that-are-way-better-than-crash-diets/)
+- [can your body reject junk food](https://diet.allwomenstalk.com/ways-to-train-your-brain-to-reject-junk-food/)
+- [Tips  Tricks to Control Hunger ...](https://diet.allwomenstalk.com/tips-tricks-to-control-hunger/)
+- [Health Hacks to Improve Your Diet ...](https://diet.allwomenstalk.com/health-hacks-to-improve-your-diet/)
+- [Smaller Portions Are Better for Your Health Heres ...](https://diet.allwomenstalk.com/why-small-portions-are-better-for-your-health/)
+- [How to Beat Your Sugar Cravings ...](https://diet.allwomenstalk.com/how-to-beat-your-sugar-cravings/)
+- [Perfect Ways to Keep Your Snacks Guilt Free ...](https://diet.allwomenstalk.com/perfect-ways-to-keep-your-snacks-guilt-free/)
+- [Daily Habits to Keep if You Want to Be Healthy ...](https://health.allwomenstalk.com/daily-habits-to-keep-if-you-want-to-be-healthy/)
 - [7 Inexpensive Tips to Improve Your Diet ...](https://diet.allwomenstalk.com/inexpensive-tips-to-improve-your-diet/)
 - [10 Ways to Eat More Healthy ...](https://allwomenstalk.com/10-ways-to-eat-more-healthy/)
 

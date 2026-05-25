@@ -42,16 +42,16 @@ These are just a few ideas to help you shake up your diet this January. It can b
 
 ## Related Posts
 
-- [7 Delicious Steps to Healthier Eating All Year Lon...](https://food.allwomenstalk.com/delicious-steps-to-healthier-eating-all-year-long/)
-- [7 Tips for Sticking to Your New Years Diet after J...](https://diet.allwomenstalk.com/tips-for-sticking-to-your-new-years-diet-after-january/)
-- [7 Things That Make a Healthy Diet ...](https://diet.allwomenstalk.com/things-that-make-a-healthy-diet/)
-- [How do I Stop Binge Eating](https://diet.allwomenstalk.com/easy-ways-to-control-overeating-and-stop-binging/)
-- [7 Ways to Add Color to Your Diet to Make Your Meal...](https://food.allwomenstalk.com/ways-to-add-color-to-your-diet-to-make-your-meals-healthier/)
-- [7 Tips on How to Find a Diet That is Right for You...](https://diet.allwomenstalk.com/tips-on-how-to-find-a-diet-that-is-right-for-you/)
 - [7 Marvelous Methods to Curb Your Appetite Naturall...](https://weightloss.allwomenstalk.com/marvelous-methods-to-curb-your-appetite-naturally/)
+- [controlling portions](https://diet.allwomenstalk.com/tips-for-controlling-your-portion-sizes/)
+- [7 Ways to Add Color to Your Diet to Make Your Meal...](https://food.allwomenstalk.com/ways-to-add-color-to-your-diet-to-make-your-meals-healthier/)
+- [How do I Stop Binge Eating](https://diet.allwomenstalk.com/easy-ways-to-control-overeating-and-stop-binging/)
+- [7 Things That Make a Healthy Diet ...](https://diet.allwomenstalk.com/things-that-make-a-healthy-diet/)
+- [7 Delicious Steps to Healthier Eating All Year Lon...](https://food.allwomenstalk.com/delicious-steps-to-healthier-eating-all-year-long/)
 - [breaking food adictions](https://health.allwomenstalk.com/ways-to-break-your-food-addiction-for-good/)
 - [7 Easy and Effective Ways to Reduce Food Waste ...](https://food.allwomenstalk.com/easy-and-effective-ways-to-reduce-food-waste/)
-- [controlling portions](https://diet.allwomenstalk.com/tips-for-controlling-your-portion-sizes/)
+- [7 Tips on How to Find a Diet That is Right for You...](https://diet.allwomenstalk.com/tips-on-how-to-find-a-diet-that-is-right-for-you/)
+- [7 Tips for Sticking to Your New Years Diet after J...](https://diet.allwomenstalk.com/tips-for-sticking-to-your-new-years-diet-after-january/)
 - [7 Inexpensive Tips to Improve Your Diet ...](https://diet.allwomenstalk.com/inexpensive-tips-to-improve-your-diet/)
 - [7 Simple Ways to Improve Your Diet without Deprivi...](https://allwomenstalk.com/7-simple-ways-to-improve-your-diet-without-depriving-yourself/)
 

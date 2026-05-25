@@ -54,16 +54,16 @@ Okay, so everyone knows someone’s sister/brother/aunt/whoever who ABSOLUTELY d
 
 ## Related Posts
 
-- [how to choose a nutritionist](https://health.allwomenstalk.com/things-to-consider-before-choosing-a-nutritionist/)
-- [what causes hunger pangs](https://health.allwomenstalk.com/shocking-reasons-for-your-hunger-pangs/)
+- [signs of bad diet](https://diet.allwomenstalk.com/signs-your-diet-is-unhealthy-and-might-be-too-extreme/)
+- [diet makeover](https://diet.allwomenstalk.com/signs-your-diet-desperately-needs-a-makeover/)
 - [yo-yo dieting effects](https://diet.allwomenstalk.com/harmful-effects-of-yoyo-dieting/)
+- [how to choose a nutritionist](https://health.allwomenstalk.com/things-to-consider-before-choosing-a-nutritionist/)
+- [beliefs about food](https://food.allwomenstalk.com/eating-beliefs-we-grew-up-learning-wrong/)
 - [why see a dietitian](https://health.allwomenstalk.com/important-reasons-to-see-a-dietitian/)
 - [just eat healthy](https://diet.allwomenstalk.com/reasons-to-ditch-your-diet-and-just-eat-healthy/)
 - [how to cook oats](https://diet.allwomenstalk.com/weight-loss-opportunities-in-your-diet-you-might-be-missing-out-on/)
-- [signs of bad diet](https://diet.allwomenstalk.com/signs-your-diet-is-unhealthy-and-might-be-too-extreme/)
+- [what causes hunger pangs](https://health.allwomenstalk.com/shocking-reasons-for-your-hunger-pangs/)
 - [worst coffee](https://diet.allwomenstalk.com/worst-things-to-order-at-coffee-shops-for-your-weight/)
-- [beliefs about food](https://food.allwomenstalk.com/eating-beliefs-we-grew-up-learning-wrong/)
-- [diet makeover](https://diet.allwomenstalk.com/signs-your-diet-desperately-needs-a-makeover/)
 - [7 Reasons You Might Be Struggling to Lose Weight ....](https://weightloss.allwomenstalk.com/7-reasons-you-might-be-struggling-to-lose-weight/)
 - [7 Reasons Not to Diet ...](https://diet.allwomenstalk.com/7-reasons-not-to-diet/)
 

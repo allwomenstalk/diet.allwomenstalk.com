@@ -54,16 +54,16 @@ These are all such marvelously healthy (and simple!) New Year's diet resolutions
 
 ## Related Posts
 
-- [4 Tips for Maximum Weight Loss Running Results ...](https://fitene.com/tips-for-maximum-weight-loss-running-results/)
-- [20 Diet and Exercise Tips That Work ...](https://vityle.com/diet-and-exercise-tips-that-work/)
-- [8 Weight Loss Links to Stalk ...](https://diet.allwomenstalk.com/weight-loss-links-to-stalk/)
-- [8 Healthy Foods for a Successful Weight Loss ...](https://diet.allwomenstalk.com/healthy-foods-for-a-successful-weight-loss/)
-- [3 Overweight Beginner Running Tips ...](https://health.allwomenstalk.com/overweight-beginner-running-tips/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/steps-for-healthy-weight-gain/)
 - [12 Swaps to Make You Thinner ...](https://diet.allwomenstalk.com/swaps-to-make-you-thinner/)
+- [4 Tips for Maximum Weight Loss Running Results ...](https://fitene.com/tips-for-maximum-weight-loss-running-results/)
+- [8 Healthy Foods for a Successful Weight Loss ...](https://diet.allwomenstalk.com/healthy-foods-for-a-successful-weight-loss/)
+- [8 Weight Loss Links to Stalk ...](https://diet.allwomenstalk.com/weight-loss-links-to-stalk/)
 - [20 Amazingly Effective Tips on How to Gain Weight ...](https://health.allwomenstalk.com/amazingly-effective-tips-on-how-to-gain-weight-fast/)
-- [5 Tips to Winning the Weight Loss Battle...](https://health.allwomenstalk.com/tips-to-winning-the-weight-loss-battle/)
 - [holistic metabolism boosters](https://diet.allwomenstalk.com/natural-metabolism-boosters-that-work-100/)
+- [3 Overweight Beginner Running Tips ...](https://health.allwomenstalk.com/overweight-beginner-running-tips/)
+- [20 Diet and Exercise Tips That Work ...](https://vityle.com/diet-and-exercise-tips-that-work/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/steps-for-healthy-weight-gain/)
+- [5 Tips to Winning the Weight Loss Battle...](https://health.allwomenstalk.com/tips-to-winning-the-weight-loss-battle/)
 - [10 Quick Healthy Ways to Lose Weight ...](https://vityle.com/quick-healthy-ways-to-lose-weight/)
 - [20 Best Dieting Tips ...](https://allwomenstalk.com/20-best-dieting-tips/)
 

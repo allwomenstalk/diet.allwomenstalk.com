@@ -44,16 +44,16 @@ Diets promise us that we can lose weight, feel great, and live the life we want 
 
 ## Related Posts
 
-- [what causes hunger pangs](https://health.allwomenstalk.com/shocking-reasons-for-your-hunger-pangs/)
-- [beliefs about food](https://food.allwomenstalk.com/eating-beliefs-we-grew-up-learning-wrong/)
-- [can you live off of honey](https://diet.allwomenstalk.com/reasons-the-paleo-diet-doesnt-work-for-everyone/)
 - [how to stop binge eating at night](https://health.allwomenstalk.com/reasons-you-crave-nut-butter-and-cant-stop-binging-on-it/)
-- [what kind of toast for brat diet](https://diet.allwomenstalk.com/benefits-of-the-brat-diet-for-belly-woes/)
-- [grains and leaky gut](https://health.allwomenstalk.com/reasons-to-reconsider-grains-if-you-have-leaky-gut-syndrome/)
 - [signs of bad diet](https://diet.allwomenstalk.com/signs-your-diet-is-unhealthy-and-might-be-too-extreme/)
-- [diet makeover](https://diet.allwomenstalk.com/signs-your-diet-desperately-needs-a-makeover/)
+- [what causes hunger pangs](https://health.allwomenstalk.com/shocking-reasons-for-your-hunger-pangs/)
+- [what kind of toast for brat diet](https://diet.allwomenstalk.com/benefits-of-the-brat-diet-for-belly-woes/)
 - [how to cook oats](https://diet.allwomenstalk.com/weight-loss-opportunities-in-your-diet-you-might-be-missing-out-on/)
 - [is mcdonalds food unhealthy](https://food.allwomenstalk.com/reasons-to-avoid-fast-food-like-its-the-plague/)
+- [diet makeover](https://diet.allwomenstalk.com/signs-your-diet-desperately-needs-a-makeover/)
+- [beliefs about food](https://food.allwomenstalk.com/eating-beliefs-we-grew-up-learning-wrong/)
+- [can you live off of honey](https://diet.allwomenstalk.com/reasons-the-paleo-diet-doesnt-work-for-everyone/)
+- [grains and leaky gut](https://health.allwomenstalk.com/reasons-to-reconsider-grains-if-you-have-leaky-gut-syndrome/)
 - [7 Reasons to Go on a Detox Diet ...](https://health.allwomenstalk.com/reasons-to-go-on-a-detox-diet/)
 - [7 Reasons Why Dieting Ruins Your Life ...](https://fitene.com/reasons-why-dieting-ruins-your-life/)
 

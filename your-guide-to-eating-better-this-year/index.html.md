@@ -44,16 +44,16 @@ The only way you can truly control your own calories and nutrition is by cooking
 
 ## Related Posts
 
-- [How to Beat Your Sugar Cravings ...](https://diet.allwomenstalk.com/how-to-beat-your-sugar-cravings/)
+- [Health Hacks to Improve Your Diet ...](https://diet.allwomenstalk.com/health-hacks-to-improve-your-diet/)
+- [healthier pizza](https://food.allwomenstalk.com/ways-to-make-your-pizza-healthier/)
+- [The Best Ways to Improve Your Diet This Year ...](https://diet.allwomenstalk.com/the-best-ways-to-improve-your-diet-this-year/)
+- [Tips  Tricks to Control Hunger ...](https://diet.allwomenstalk.com/tips-tricks-to-control-hunger/)
+- [can your body reject junk food](https://diet.allwomenstalk.com/ways-to-train-your-brain-to-reject-junk-food/)
 - [7 Easy Health Hacks to Improve Your Diet ...](https://diet.allwomenstalk.com/easy-health-hacks-to-improve-your-diet/)
 - [Smaller Portions Are Better for Your Health Heres ...](https://diet.allwomenstalk.com/why-small-portions-are-better-for-your-health/)
-- [Perfect Ways to Keep Your Snacks Guilt Free ...](https://diet.allwomenstalk.com/perfect-ways-to-keep-your-snacks-guilt-free/)
-- [Health Hacks to Improve Your Diet ...](https://diet.allwomenstalk.com/health-hacks-to-improve-your-diet/)
+- [How to Beat Your Sugar Cravings ...](https://diet.allwomenstalk.com/how-to-beat-your-sugar-cravings/)
 - [Daily Habits to Keep if You Want to Be Healthy ...](https://health.allwomenstalk.com/daily-habits-to-keep-if-you-want-to-be-healthy/)
-- [The Best Ways to Improve Your Diet This Year ...](https://diet.allwomenstalk.com/the-best-ways-to-improve-your-diet-this-year/)
-- [can your body reject junk food](https://diet.allwomenstalk.com/ways-to-train-your-brain-to-reject-junk-food/)
-- [Tips  Tricks to Control Hunger ...](https://diet.allwomenstalk.com/tips-tricks-to-control-hunger/)
-- [healthier pizza](https://food.allwomenstalk.com/ways-to-make-your-pizza-healthier/)
+- [Perfect Ways to Keep Your Snacks Guilt Free ...](https://diet.allwomenstalk.com/perfect-ways-to-keep-your-snacks-guilt-free/)
 - [13 Ways to Eat Better in the New Year](https://diet.allwomenstalk.com/ways-to-eat-better-in-the-new-year/)
 - [7 Tips on Eating Well ...](https://allwomenstalk.com/7-tips-on-eating-well/)
 

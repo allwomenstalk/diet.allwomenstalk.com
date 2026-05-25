@@ -44,16 +44,16 @@ After following these tips, you will be back on track to eating healthy and work
 
 ## Related Posts
 
-- [vegan cat food study](https://food.allwomenstalk.com/points-to-remember-when-turning-vegan/)
-- [how to avoid food temptation](https://diet.allwomenstalk.com/ways-to-resist-temptation-when-it-comes-to-food/)
-- [cooking yourself thin recipes](https://diet.allwomenstalk.com/simple-ways-to-cook-yourself-thin/)
-- [coconut flour side effects](https://health.allwomenstalk.com/ways-coconut-flour-can-help-you-ditch-those-sugar-cravings/)
-- [eat differently](https://diet.allwomenstalk.com/ways-to-deal-with-eating-differently-than-others/)
-- [a food label ingredient list reads](https://diet.allwomenstalk.com/quick-ways-to-read-a-food-label-to-tell-if-its-healthy-or-not/)
-- [navigate grocery store](https://lifestyle.allwomenstalk.com/simple-steps-for-navigating-through-the-grocery-store/)
-- [how to include spinach in your diet](https://food.allwomenstalk.com/sneaky-ways-to-add-spinach-to-your-diet/)
 - [diet on vacation](https://diet.allwomenstalk.com/tips-to-help-you-stick-to-your-diet-while-on-vacation/)
+- [how to include spinach in your diet](https://food.allwomenstalk.com/sneaky-ways-to-add-spinach-to-your-diet/)
+- [eat differently](https://diet.allwomenstalk.com/ways-to-deal-with-eating-differently-than-others/)
+- [cooking yourself thin recipes](https://diet.allwomenstalk.com/simple-ways-to-cook-yourself-thin/)
+- [vegan cat food study](https://food.allwomenstalk.com/points-to-remember-when-turning-vegan/)
+- [a food label ingredient list reads](https://diet.allwomenstalk.com/quick-ways-to-read-a-food-label-to-tell-if-its-healthy-or-not/)
 - [how to stop fast food addiction](https://diet.allwomenstalk.com/tips-for-beating-a-fast-food-addiction-starting-today/)
+- [how to avoid food temptation](https://diet.allwomenstalk.com/ways-to-resist-temptation-when-it-comes-to-food/)
+- [navigate grocery store](https://lifestyle.allwomenstalk.com/simple-steps-for-navigating-through-the-grocery-store/)
+- [coconut flour side effects](https://health.allwomenstalk.com/ways-coconut-flour-can-help-you-ditch-those-sugar-cravings/)
 - [7 Ways to Repair Your Relationship with Food ...](https://diet.allwomenstalk.com/ways-to-repair-your-relationship-with-food/)
 - [7 Tips on How to Recover from a Food Binge ...](https://health.allwomenstalk.com/tips-on-how-to-recover-from-a-food-binge/)
 

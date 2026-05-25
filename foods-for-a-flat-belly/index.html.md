@@ -68,16 +68,16 @@ Do you have a favorite de-bloating food, lovelies? Let me know which in case you
 
 ## Related Posts
 
-- [7 Brain Breaking Foods You Should Be Avoiding ...](https://food.allwomenstalk.com/brain-breaking-foods-you-should-be-avoiding/)
-- [15 People Foods That Are Good for Your Dog ...](https://food.allwomenstalk.com/people-foods-that-are-good-for-your-dog/)
 - [vit d rich foods](https://food.allwomenstalk.com/vitamin-d-rich-foods-that-can-boost-your-health/)
-- [8 Super Tasty Yet Healthy Substitutes for Fattenin...](https://diet.allwomenstalk.com/super-tasty-yet-healthy-substitutes-for-fattening-foods/)
-- [fruits that help clear skin](https://skincare.allwomenstalk.com/fruits-to-eat-for-clear-skin/)
 - [orange juice fortified with plant sterols](https://diet.allwomenstalk.com/foods-to-lower-cholesterol/)
-- [8 Foods to Incorporate to Make a Happier You ...](https://food.allwomenstalk.com/foods-to-incorporate-to-make-a-happier-you/)
 - [10 Calorie-Free Ways to Flavor Your Foods ...](https://diet.allwomenstalk.com/calorie-free-ways-to-flavor-your-foods/)
 - [site:health.allwomenstalk.com](https://health.allwomenstalk.com/nutritious-smoothies/)
+- [fruits that help clear skin](https://skincare.allwomenstalk.com/fruits-to-eat-for-clear-skin/)
 - [7 Healthy Snacks to Keep You Going All Day Long .....](https://health.allwomenstalk.com/healthy-snacks-to-keep-you-going-all-day-long/)
+- [7 Brain Breaking Foods You Should Be Avoiding ...](https://food.allwomenstalk.com/brain-breaking-foods-you-should-be-avoiding/)
+- [8 Super Tasty Yet Healthy Substitutes for Fattenin...](https://diet.allwomenstalk.com/super-tasty-yet-healthy-substitutes-for-fattening-foods/)
+- [15 People Foods That Are Good for Your Dog ...](https://food.allwomenstalk.com/people-foods-that-are-good-for-your-dog/)
+- [8 Foods to Incorporate to Make a Happier You ...](https://food.allwomenstalk.com/foods-to-incorporate-to-make-a-happier-you/)
 - [10 Ways to Burn Belly Fat ...](https://weightloss.allwomenstalk.com/ways-to-burn-belly-fat/)
 - [8 Foods That Flatten Your Stomach ...](https://allwomenstalk.com/8-foods-that-flatten-your-stomach/)
 

@@ -50,15 +50,15 @@ When you’re eating out on a diet, you should be able to enjoy what you eat wit
 
 ## Related Posts
 
-- [7 Simple Strategies to Make Changes to Your Diet ....](https://diet.allwomenstalk.com/simple-strategies-to-make-changes-to-your-diet/)
 - [7 Things to do While Recovering from an Eating Dis...](https://health.allwomenstalk.com/things-to-do-while-recovering-from-an-eating-disorder-to-help-you-heal/)
-- [tips for eating dairy](https://diet.allwomenstalk.com/smart-tips-for-eating-dairy-if-youre-on-a-diet/)
+- [7 Ways to Avoid Unwanted Calories Daily ...](https://diet.allwomenstalk.com/ways-to-avoid-unwanted-calories-daily/)
+- [7 Simple Strategies to Make Changes to Your Diet ....](https://diet.allwomenstalk.com/simple-strategies-to-make-changes-to-your-diet/)
+- [7 Ways to Improve Your Bone Health ...](https://health.allwomenstalk.com/ways-to-improve-your-bone-health/)
 - [7 Ways Fitness Can Make You Eat Healthier ...](https://fitness.allwomenstalk.com/ways-fitness-can-make-you-eat-healthier/)
 - [7 Tips for Success when Eating out on a Diet ...](https://diet.allwomenstalk.com/tips-for-success-when-eating-out-on-a-diet/)
+- [tips for eating dairy](https://diet.allwomenstalk.com/smart-tips-for-eating-dairy-if-youre-on-a-diet/)
 - [sushi bloating](https://food.allwomenstalk.com/ways-to-make-sushi-healthier/)
 - [sneak eating](https://diet.allwomenstalk.com/ways-to-sneak-in-healthy-eating/)
-- [7 Ways to Improve Your Bone Health ...](https://health.allwomenstalk.com/ways-to-improve-your-bone-health/)
-- [7 Ways to Avoid Unwanted Calories Daily ...](https://diet.allwomenstalk.com/ways-to-avoid-unwanted-calories-daily/)
 - [7 Smart Ways to Maximize Your Calories Each and Ev...](https://diet.allwomenstalk.com/smart-ways-to-maximize-your-calories-each-and-every-day/)
 - [11 Tips on How to Keep to Your Diet ...](https://allwomenstalk.com/tips-on-how-to-keep-to-your-diet/)
 - [9 Tips to Eating Healthy on Vacation ...](https://allwomenstalk.com/9-tips-to-eating-healthy-on-vacation/)

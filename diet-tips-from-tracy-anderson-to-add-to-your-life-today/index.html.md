@@ -44,16 +44,16 @@ There are many other fabulous diet tips you can get from Tracy, along with an ea
 
 ## Related Posts
 
-- [ways to eat fiber](https://food.allwomenstalk.com/easy-ways-to-eat-fiber-every-single-day/)
-- [best way to get your greens](https://food.allwomenstalk.com/ways-to-get-more-greens-in-your-diet/)
-- [italian songs about food](https://food.allwomenstalk.com/ways-to-make-italian-food-healthier/)
-- [rainbow color food items](https://food.allwomenstalk.com/ways-to-eat-a-rainbow/)
-- [heal relationship with food](https://diet.allwomenstalk.com/ways-to-heal-your-broken-relationship-with-food/)
-- [excuses for skipping](https://health.allwomenstalk.com/excuses-for-skipping-breakfast-and-how-to-overcome-that/)
-- [health tips for teens](https://teen.allwomenstalk.com/health-tips-for-teens-to-follow-this-year/)
 - [happy meal braclet](https://food.allwomenstalk.com/ways-to-build-a-healthier-happy-meal/)
 - [how does your family affect your diet](https://diet.allwomenstalk.com/ways-your-family-affects-your-dieting-habits/)
+- [heal relationship with food](https://diet.allwomenstalk.com/ways-to-heal-your-broken-relationship-with-food/)
 - [how to control your drinking on a night out](https://lifestyle.allwomenstalk.com/ways-to-control-your-alcohol-intake-and-still-have-great-nights-out/)
+- [best way to get your greens](https://food.allwomenstalk.com/ways-to-get-more-greens-in-your-diet/)
+- [rainbow color food items](https://food.allwomenstalk.com/ways-to-eat-a-rainbow/)
+- [health tips for teens](https://teen.allwomenstalk.com/health-tips-for-teens-to-follow-this-year/)
+- [excuses for skipping](https://health.allwomenstalk.com/excuses-for-skipping-breakfast-and-how-to-overcome-that/)
+- [italian songs about food](https://food.allwomenstalk.com/ways-to-make-italian-food-healthier/)
+- [ways to eat fiber](https://food.allwomenstalk.com/easy-ways-to-eat-fiber-every-single-day/)
 - [7 Great Tips from My Personal Trainer ...](https://allwomenstalk.com/7-great-tips-from-my-personal-trainer/)
 - [7 Time-saving Exercise Tips ...](https://allwomenstalk.com/7-time-saving-exercise-tips/)
 

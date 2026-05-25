@@ -56,16 +56,16 @@ Which of these foods have you been eating? Will you give them up now?
 
 ## Related Posts
 
-- [superfoods for the brain](https://diet.allwomenstalk.com/superfoods-for-your-brain/)
-- [breast cancer prevention foods](https://food.allwomenstalk.com/foods-that-prevent-breast-cancer/)
-- [10 Foods That Keep You Regular for Girls with Bloa...](https://health.allwomenstalk.com/foods-that-keep-you-regular/)
-- [Awesome Spices  That Fight Cancer ...](https://health.allwomenstalk.com/spices-that-fight-cancer/)
-- [eating dairy milk chocolate during periods](https://health.allwomenstalk.com/best-foods-to-eat-during-your-period/)
-- [plant based swaps](https://food.allwomenstalk.com/plant-based-food-swaps/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/foods-that-prevent-cancer/)
-- [Reasons to Go Vegan : My Journey ...](https://diet.allwomenstalk.com/reasons-to-go-vegan/)
 - [10 Best Foods  for a Flat Belly All Year Long ...](https://weightloss.allwomenstalk.com/best-foods-for-a-flat-belly/)
+- [eating dairy milk chocolate during periods](https://health.allwomenstalk.com/best-foods-to-eat-during-your-period/)
+- [10 Foods That Keep You Regular for Girls with Bloa...](https://health.allwomenstalk.com/foods-that-keep-you-regular/)
+- [Reasons to Go Vegan : My Journey ...](https://diet.allwomenstalk.com/reasons-to-go-vegan/)
 - [Top 5 Best Natural Sugar Substitutes for Girls Loo...](https://diet.allwomenstalk.com/best-natural-sugar-substitutes/)
+- [plant based swaps](https://food.allwomenstalk.com/plant-based-food-swaps/)
+- [breast cancer prevention foods](https://food.allwomenstalk.com/foods-that-prevent-breast-cancer/)
+- [superfoods for the brain](https://diet.allwomenstalk.com/superfoods-for-your-brain/)
+- [Awesome Spices  That Fight Cancer ...](https://health.allwomenstalk.com/spices-that-fight-cancer/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/foods-that-prevent-cancer/)
 - [7 Most Unhealthy Foods to Avoid ...](https://health.allwomenstalk.com/most-unhealthy-foods-to-avoid/)
 - [10 Worst Foods to Eat ...](https://allwomenstalk.com/top-10-worst-foods-to-eat/)
 

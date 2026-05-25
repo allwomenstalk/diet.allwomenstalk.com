@@ -199,15 +199,15 @@ And here’s a bonus leaf for you. Celery itself if not a leaf, but the leaves f
 ## Related Posts
 
 - [acesulfame pronounce](https://diet.allwomenstalk.com/you-have-to-try-these-healthy-sugar-substitutes/)
+- [white beans high in potassium](https://food.allwomenstalk.com/potassium-rich-foods-that-should-be-on-your-menu/)
+- [vending machine choices](https://weightloss.allwomenstalk.com/vending-machine-choices-that-wont-wreck-your-diet/)
 - [bacon tattoo](https://beauty.allwomenstalk.com/you-wont-believe-these-food-tattoos-actually-exist/)
 - [choline foods](https://food.allwomenstalk.com/these-are-jamie-olivers-hero-foods/)
-- [healthy vegetable sides for thanksgiving](https://food.allwomenstalk.com/the-healthiest-side-dishes-to-serve-on-thanksgiving/)
 - [highest source of lycopene](https://food.allwomenstalk.com/what-are-the-foods-richest-in-lycopene/)
-- [vending machine choices](https://weightloss.allwomenstalk.com/vending-machine-choices-that-wont-wreck-your-diet/)
-- [white beans high in potassium](https://food.allwomenstalk.com/potassium-rich-foods-that-should-be-on-your-menu/)
 - [fall recipes lunch](https://food.allwomenstalk.com/hungry-try-these-healthy-fall-lunch-ideas/)
-- [best fruits for fiber](https://food.allwomenstalk.com/top-highest-fiber-fruits/)
+- [healthy vegetable sides for thanksgiving](https://food.allwomenstalk.com/the-healthiest-side-dishes-to-serve-on-thanksgiving/)
 - [food substitutes](https://food.allwomenstalk.com/food-substitutions-that-will-save-you-a-trip-to-the-store/)
+- [best fruits for fiber](https://food.allwomenstalk.com/top-highest-fiber-fruits/)
 - [10 Yummy Salads to Cool down Your Summer ...](https://cooking.allwomenstalk.com/10-yummy-salads-to-cool-down-your-summer/)
 - [9 Healthiest Vegetables to Add to Your Diet ...](https://diet.allwomenstalk.com/healthiest-vegetables-to-add-to-your-diet/)
 

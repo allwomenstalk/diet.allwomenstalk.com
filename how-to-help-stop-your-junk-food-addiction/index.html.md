@@ -42,16 +42,16 @@ So get on track starting today and remember 30 days of eating healthy will help 
 
 ## Related Posts
 
-- [hangover spaghetti](https://diet.allwomenstalk.com/fool-proof-ways-to-deal-when-suffering-from-a-food-hangover/)
-- [eatright meal prep](https://food.allwomenstalk.com/meal-prep-ideas-to-help-you-eat-right-all-week-long/)
-- [what is the messiest food to eat](https://food.allwomenstalk.com/best-ways-to-eat-messy-foods/)
-- [triscuit glycemic index](https://diet.allwomenstalk.com/how-to-snack-in-a-balanced-way/)
-- [how to control blood sugar levels with food](https://diet.allwomenstalk.com/how-to-eat-to-control-your-blood-sugar-level/)
-- [Healthy Ways to Indulge Your Sweet Tooth without B...](https://food.allwomenstalk.com/healthy-ways-to-indulge-your-sweet-tooth/)
-- [healthiest cheeses to eat](https://food.allwomenstalk.com/healthy-ways-to-eat-cheese/)
-- [diet plan for family](https://diet.allwomenstalk.com/exceptional-ways-to-develop-a-healthy-eating-plan-for-the-whole-family/)
-- [cant resist sweets](https://diet.allwomenstalk.com/ways-to-resist-sweets/)
 - [track their parmesans by microchips](https://food.allwomenstalk.com/healthy-chip-recipes/)
+- [eatright meal prep](https://food.allwomenstalk.com/meal-prep-ideas-to-help-you-eat-right-all-week-long/)
+- [hangover spaghetti](https://diet.allwomenstalk.com/fool-proof-ways-to-deal-when-suffering-from-a-food-hangover/)
+- [healthiest cheeses to eat](https://food.allwomenstalk.com/healthy-ways-to-eat-cheese/)
+- [cant resist sweets](https://diet.allwomenstalk.com/ways-to-resist-sweets/)
+- [how to control blood sugar levels with food](https://diet.allwomenstalk.com/how-to-eat-to-control-your-blood-sugar-level/)
+- [triscuit glycemic index](https://diet.allwomenstalk.com/how-to-snack-in-a-balanced-way/)
+- [Healthy Ways to Indulge Your Sweet Tooth without B...](https://food.allwomenstalk.com/healthy-ways-to-indulge-your-sweet-tooth/)
+- [diet plan for family](https://diet.allwomenstalk.com/exceptional-ways-to-develop-a-healthy-eating-plan-for-the-whole-family/)
+- [what is the messiest food to eat](https://food.allwomenstalk.com/best-ways-to-eat-messy-foods/)
 - [7 Ways to Control Your Cravings ...](https://cooking.allwomenstalk.com/7-ways-to-control-your-cravings/)
 - [7 Ways to Stop Snacking ...](https://health.allwomenstalk.com/7-ways-to-stop-snacking/)
 
