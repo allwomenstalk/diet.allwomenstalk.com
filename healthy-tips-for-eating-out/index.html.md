@@ -3,7 +3,7 @@ title: "7 Healthy Tips for Eating out ..."
 description: "Plan Ahead; Skip the Dairy; Go Naked!; Split the Meal; Take Half; More ..."
 url: "https://diet.allwomenstalk.com/healthy-tips-for-eating-out/"
 category: "diet"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Healthy Tips for Eating out ...

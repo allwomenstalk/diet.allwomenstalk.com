@@ -3,7 +3,7 @@ title: "7 Healthy Dessert Ideas for Thanksgiving ..."
 description: "Pumpkin Pie ‘Pudding’; Homemade Cranberry Sauce with Low-Fat Ice Cream; Baked Apples with Cinnamon and Raisins; Chocolate Dipped Strawberries (and Other Fruit); Poached Pears with Blue Cheese/Gorgonzola Cheese; More ..."
 url: "https://diet.allwomenstalk.com/healthy-dessert-ideas-for-thanksgiving/"
 category: "diet"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Healthy Dessert Ideas for Thanksgiving ...
@@ -56,16 +56,16 @@ Thanksgiving desserts can be both healthy and delicious! What are some of your g
 
 ## Related Posts
 
+- [sales a holic](https://food.allwomenstalk.com/girl-scout-cookies-online-sales-announcement-is-every-cookie-holics-dream/)
 - [what to put on gingerbread house](https://food.allwomenstalk.com/awesome-foods-for-decorating-a-gingerbread-house/)
-- [original bisquick coffee cake recipe](https://food.allwomenstalk.com/coffee-cake-recipes-youll-fall-in-love-with/)
-- [simple fruit centerpieces](https://food.allwomenstalk.com/tasty-fruit-platters-for-just-about-any-celebration/)
-- [christmas pinwheel cookies](https://food.allwomenstalk.com/christmas-cookies-for-this-years-holidays/)
 - [crazy gingerbread house ideas](https://food.allwomenstalk.com/gingerbread-houses-you-can-build-and-eat/)
 - [pudding cups flavors](https://food.allwomenstalk.com/delicious-pudding-recipes-you-have-to-taste/)
+- [simple fruit centerpieces](https://food.allwomenstalk.com/tasty-fruit-platters-for-just-about-any-celebration/)
+- [original bisquick coffee cake recipe](https://food.allwomenstalk.com/coffee-cake-recipes-youll-fall-in-love-with/)
 - [metallic gold frosting](https://food.allwomenstalk.com/holiday-frosting-color-combinations/)
-- [sales a holic](https://food.allwomenstalk.com/girl-scout-cookies-online-sales-announcement-is-every-cookie-holics-dream/)
 - [man matters hair gummies](https://food.allwomenstalk.com/intensely-adorable-snowman-snack-recipes/)
 - [oreo dj mixer](https://food.allwomenstalk.com/delicious-oreo-themed-desserts-youll-devour/)
+- [christmas pinwheel cookies](https://food.allwomenstalk.com/christmas-cookies-for-this-years-holidays/)
 - [7 Low Fat Dessert Recipes ...](https://diet.allwomenstalk.com/low-fat-dessert-recipes/)
 - [7 Scrumptiously Yummy and Incredibly Unique Thanks...](https://thecrepescafe.com/yummy-and-unique-thanksgiving-desserts/)
 

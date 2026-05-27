@@ -3,7 +3,7 @@ title: "10 Healthy Snacks under 200 Calories ..."
 description: "Planters Nut-rition Omega-3 Mix; Special K™ Multi-Grain Crackers; Hummus and Pita; Kalamata Olives; Peanut Butter and Celery; More ..."
 url: "https://diet.allwomenstalk.com/healthy-snacks-under-200-calories/"
 category: "diet"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 10 Healthy Snacks under 200 Calories ...
@@ -57,15 +57,15 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/12808289)
 ## Related Posts
 
 - [8 Best Foods to Fight Nausea ...](https://health.allwomenstalk.com/best-foods-to-fight-nausea/)
+- [10 Great Things under 10 to Get You Healthy ...](https://health.allwomenstalk.com/great-things-under-10-to-get-you-healthy/)
 - [10 Best Heart Foods for You and Him ...](https://health.allwomenstalk.com/best-heart-foods-for-you-and-him/)
 - [7 Key Nutrients and How to Get Them from Food ...](https://food.allwomenstalk.com/key-nutrients-and-how-to-get-them-from-food/)
-- [10 Great Things under 10 to Get You Healthy ...](https://health.allwomenstalk.com/great-things-under-10-to-get-you-healthy/)
-- [7 Foods to Give You Brain Power ...](https://food.allwomenstalk.com/foods-to-give-you-brain-power/)
-- [what is good carbs to eat](https://diet.allwomenstalk.com/good-carbs-to-eat/)
-- [9 Worst Fast Food Choices for Girls on the Go ...](https://health.allwomenstalk.com/worst-fast-food-choices-for-girls-on-the-go/)
-- [8 Healthy and Delicous after School Snacks ...](https://food.allwomenstalk.com/healthy-and-delicous-after-school-snacks/)
 - [food for flatter stomach](https://baking.allwomenstalk.com/best-foods-for-a-flatter-stomach/)
 - [7 Best Foods to Eat during Chemo ...](https://health.allwomenstalk.com/best-foods-to-eat-during-chemo/)
+- [9 Worst Fast Food Choices for Girls on the Go ...](https://health.allwomenstalk.com/worst-fast-food-choices-for-girls-on-the-go/)
+- [8 Healthy and Delicous after School Snacks ...](https://food.allwomenstalk.com/healthy-and-delicous-after-school-snacks/)
+- [7 Foods to Give You Brain Power ...](https://food.allwomenstalk.com/foods-to-give-you-brain-power/)
+- [what is good carbs to eat](https://diet.allwomenstalk.com/good-carbs-to-eat/)
 - [6 Tasty Frozen Treats under 200 Calories ...](https://lifestyle.allwomenstalk.com/tasty-frozen-treats-under-200-calories/)
 - [6 Best Low Calorie Snacks ...](https://allwomenstalk.com/top-10-low-calorie-snacks/)
 

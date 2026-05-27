@@ -3,7 +3,7 @@ title: "Did You Know Your Diet Affects Your Mood?"
 description: "Optimistic; Depression; Libido; Unstable Energy Levels; Happier; More ..."
 url: "https://diet.allwomenstalk.com/did-you-know-your-diet-affects-your-mood/"
 category: "diet"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Did You Know Your Diet Affects Your Mood?
@@ -40,16 +40,16 @@ Fill your diet with foods rich in vitamin C and complex carbohydrates, and you w
 
 ## Related Posts
 
-- [Is Intuitive Eating the Smarter Way to Lose Weight](https://weightloss.allwomenstalk.com/is-intuitive-eating-the-smarter-way-to-lose-weight/)
-- [Why Your Salad Isnt as Healthy as It Could Be ...](https://food.allwomenstalk.com/why-your-salad-isnt-as-healthy-as-it-could-be/)
 - [11 Mistakes That Will Prevent You from Losing Bell...](https://weightloss.allwomenstalk.com/mistakes-that-will-prevent-you-from-losing-belly-fat/)
-- [what time of day do you burn the most calories](https://weightloss.allwomenstalk.com/what-time-of-day-do-you-burn-the-most-calories/)
-- [Why Belly Fat is Dangerous to Your Health ...](https://weightloss.allwomenstalk.com/why-belly-fat-is-detrimental-to-your-health/)
-- [eating lunch at your desk](https://diet.allwomenstalk.com/reasons-to-stop-eating-lunch-at-your-desk/)
+- [Is Your Crutch Preventing Weight Loss](https://weightloss.allwomenstalk.com/is-your-crutch-preventing-weight-loss/)
 - [famous sports drinks](https://fitness.allwomenstalk.com/your-sports-drinks-arent-as-healthy-as-you-think/)
 - [7 Reasons You Regained the Weight You Lost ...](https://weightloss.allwomenstalk.com/reasons-you-regained-the-weight-you-lost/)
 - [Mysterious Weight Gain Explained ...](https://weightloss.allwomenstalk.com/mysterious-weight-gain-explained/)
-- [Is Your Crutch Preventing Weight Loss](https://weightloss.allwomenstalk.com/is-your-crutch-preventing-weight-loss/)
+- [Why Belly Fat is Dangerous to Your Health ...](https://weightloss.allwomenstalk.com/why-belly-fat-is-detrimental-to-your-health/)
+- [what time of day do you burn the most calories](https://weightloss.allwomenstalk.com/what-time-of-day-do-you-burn-the-most-calories/)
+- [Why Your Salad Isnt as Healthy as It Could Be ...](https://food.allwomenstalk.com/why-your-salad-isnt-as-healthy-as-it-could-be/)
+- [Is Intuitive Eating the Smarter Way to Lose Weight](https://weightloss.allwomenstalk.com/is-intuitive-eating-the-smarter-way-to-lose-weight/)
+- [eating lunch at your desk](https://diet.allwomenstalk.com/reasons-to-stop-eating-lunch-at-your-desk/)
 - [Diet Excuses....do You Fit in](https://allwomenstalk.com/diet-excusesdo-you-fit-in/)
 - [9 Things You Should Know about Brain Chemistry and...](https://vityle.com/things-you-should-know-about-brain-chemistry-and-your-diet/)
 
