@@ -3,7 +3,7 @@ title: "The Explanations Youve Been Waiting for: Diets!"
 description: "Weight Watchers; Rosemary Conley Diet; South Beach; Cambridge Diet; Atkins Diet; More ..."
 url: "https://diet.allwomenstalk.com/the-explanations-youve-been-waiting-for-diets/"
 category: "diet"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # The Explanations Youve Been Waiting for: Diets!
@@ -96,16 +96,16 @@ The full sized version of the infographic is available at [chrismorleydesign.com
 
 ## Related Posts
 
+- [Why Are You Always so Hungry](https://diet.allwomenstalk.com/why-are-you-always-so-hungry/)
+- [Hard-Hitting Reasons for Giving up Soda for Girls ...](https://health.allwomenstalk.com/and-this-is-why-they-gave-up-diet-soda/)
+- [the lies we tell ourselves about weight loss](https://weightloss.allwomenstalk.com/blatant-lies-we-tell-ourselves-about-dieting/)
+- [Why Your Fitness Plan Always Fails ...](https://fitness.allwomenstalk.com/why-your-fitness-plan-always-fails/)
 - [Nobody Tells You These 7 Things about Weight Loss ...](https://weightloss.allwomenstalk.com/nobody-tells-you-these-things-about-weight-loss/)
 - [Dont Lose Weight if These Apply to You](https://weightloss.allwomenstalk.com/you-do-not-need-to-lose-weight-if-these-are-true-for-you/)
-- [Are You Eating More than You Realize](https://weightloss.allwomenstalk.com/are-you-eating-more-than-you-realize/)
 - [You Will Not Believe What Trans Fats Are Doing to ...](https://diet.allwomenstalk.com/you-will-not-believe-what-trans-fats-are-doing-to-your-body/)
-- [Why Your Fitness Plan Always Fails ...](https://fitness.allwomenstalk.com/why-your-fitness-plan-always-fails/)
-- [This is Why That Fretted Scale is Showing More tha...](https://weightloss.allwomenstalk.com/did-you-know-that-this-affects-the-number-on-the-scale/)
-- [Hard-Hitting Reasons for Giving up Soda for Girls ...](https://health.allwomenstalk.com/and-this-is-why-they-gave-up-diet-soda/)
 - [Trying to Flatten Your Stomach Reasons Why You Can...](https://weightloss.allwomenstalk.com/trying-to-flatten-your-stomach-reasons-why-you-cant-lose-the-bulge/)
-- [the lies we tell ourselves about weight loss](https://weightloss.allwomenstalk.com/blatant-lies-we-tell-ourselves-about-dieting/)
-- [Why Are You Always so Hungry](https://diet.allwomenstalk.com/why-are-you-always-so-hungry/)
+- [Are You Eating More than You Realize](https://weightloss.allwomenstalk.com/are-you-eating-more-than-you-realize/)
+- [This is Why That Fretted Scale is Showing More tha...](https://weightloss.allwomenstalk.com/did-you-know-that-this-affects-the-number-on-the-scale/)
 - [Everything about Dieting:  1 How Dieting Works](https://allwomenstalk.com/everything-about-dieting-1-how-dieting-works/)
 - [The Idea behind Dieting - Real Facts ...](https://allwomenstalk.com/the-idea-behind-dieting-real-facts/)
 

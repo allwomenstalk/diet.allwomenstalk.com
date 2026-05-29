@@ -3,7 +3,7 @@ title: "Top 9 Health Foods of 2012 ..."
 description: "Parsley; Chia Seeds; Raw Cacao; Dark Chocolate; Avocados; More ..."
 url: "https://diet.allwomenstalk.com/top-health-foods-of/"
 category: "diet"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # Top 9 Health Foods of 2012 ...
@@ -52,16 +52,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/21249170)
 
 ## Related Posts
 
-- [7 Healthy Snacks to Have before Dinner ...](https://diet.allwomenstalk.com/healthy-snacks-to-have-before-dinner/)
-- [healthy fast food dinner choices](https://diet.allwomenstalk.com/healthy-fast-foods-to-opt-for/)
-- [9 Absolutely Mouthwatering Mood Foods to Drive Awa...](https://food.allwomenstalk.com/absolutely-mouthwatering-mood-foods-to-drive-away-those-blues/)
 - [7 Foods I Didnt Think Id like but do ...](https://cooking.allwomenstalk.com/7-foods-i-didnt-think-id-like-but-do/)
-- [things that go together like peanut butter and jel...](https://cooking.allwomenstalk.com/7-foods-that-you-didnt-realize-go-together/)
-- [7 Healthy Salads to Eat Daily ...](https://diet.allwomenstalk.com/healthy-salads-to-eat-daily/)
-- [lightest cheese](https://food.allwomenstalk.com/unbelievably-light-and-scrumptiously-healthy-types-of-cheese/)
-- [20 Healthiest Diet Foods for You ...](https://eatial.com/healthiest-diet-foods-for-you/)
+- [healthy fast food dinner choices](https://diet.allwomenstalk.com/healthy-fast-foods-to-opt-for/)
 - [12 Iconic Foods ...](https://cooking.allwomenstalk.com/12-iconic-foods/)
+- [20 Healthiest Diet Foods for You ...](https://eatial.com/healthiest-diet-foods-for-you/)
+- [7 Healthy Salads to Eat Daily ...](https://diet.allwomenstalk.com/healthy-salads-to-eat-daily/)
+- [things that go together like peanut butter and jel...](https://cooking.allwomenstalk.com/7-foods-that-you-didnt-realize-go-together/)
+- [7 Healthy Snacks to Have before Dinner ...](https://diet.allwomenstalk.com/healthy-snacks-to-have-before-dinner/)
+- [9 Absolutely Mouthwatering Mood Foods to Drive Awa...](https://food.allwomenstalk.com/absolutely-mouthwatering-mood-foods-to-drive-away-those-blues/)
 - [yummy frozen food](https://food.allwomenstalk.com/amazingly-yummy-and-healthy-frozen-foods/)
+- [lightest cheese](https://food.allwomenstalk.com/unbelievably-light-and-scrumptiously-healthy-types-of-cheese/)
 - [7 Most Popular Smart Foods ...](https://health.allwomenstalk.com/7-most-popular-smart-foods/)
 - [10 Amazingly Healthy Foods to Eat ...](https://health.allwomenstalk.com/amazingly-healthy-foods-to-eat/)
 

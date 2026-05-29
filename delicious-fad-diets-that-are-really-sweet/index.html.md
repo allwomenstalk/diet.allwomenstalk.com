@@ -3,7 +3,7 @@ title: "7 Delicious Fad Diets That Are Really Sweet ..."
 description: "The Chocolate Diet; The Twinkie Diet; The Marie Antoinette Diet; The Ice Cream Diet; The Slim-Fast Diet; More ..."
 url: "https://diet.allwomenstalk.com/delicious-fad-diets-that-are-really-sweet/"
 category: "diet"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Delicious Fad Diets That Are Really Sweet ...

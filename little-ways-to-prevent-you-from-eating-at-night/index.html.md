@@ -3,7 +3,7 @@ title: "8 Little Ways to Prevent You from Eating at Night ..."
 description: "Brush Your Teeth; Clear the Pantry; Turn off the TV; Do Something Active; Develop a Mantra; More ..."
 url: "https://diet.allwomenstalk.com/little-ways-to-prevent-you-from-eating-at-night/"
 category: "diet"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 8 Little Ways to Prevent You from Eating at Night ...

@@ -3,7 +3,7 @@ title: "23 Types of Salad Leaves Every Dieter Should Know ..."
 description: "Arugula; Butterhead; Cabbage; Chard; Dandelion Greens; More ..."
 url: "https://diet.allwomenstalk.com/types-of-salad-leaves-every-dieter-should-know/"
 category: "diet"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 23 Types of Salad Leaves Every Dieter Should Know ...
@@ -198,15 +198,15 @@ And here’s a bonus leaf for you. Celery itself if not a leaf, but the leaves f
 
 ## Related Posts
 
+- [fall recipes lunch](https://food.allwomenstalk.com/hungry-try-these-healthy-fall-lunch-ideas/)
 - [white beans high in potassium](https://food.allwomenstalk.com/potassium-rich-foods-that-should-be-on-your-menu/)
-- [vending machine choices](https://weightloss.allwomenstalk.com/vending-machine-choices-that-wont-wreck-your-diet/)
-- [best fruits for fiber](https://food.allwomenstalk.com/top-highest-fiber-fruits/)
+- [highest source of lycopene](https://food.allwomenstalk.com/what-are-the-foods-richest-in-lycopene/)
 - [acesulfame pronounce](https://diet.allwomenstalk.com/you-have-to-try-these-healthy-sugar-substitutes/)
 - [food substitutes](https://food.allwomenstalk.com/food-substitutions-that-will-save-you-a-trip-to-the-store/)
-- [highest source of lycopene](https://food.allwomenstalk.com/what-are-the-foods-richest-in-lycopene/)
+- [vending machine choices](https://weightloss.allwomenstalk.com/vending-machine-choices-that-wont-wreck-your-diet/)
 - [healthy vegetable sides for thanksgiving](https://food.allwomenstalk.com/the-healthiest-side-dishes-to-serve-on-thanksgiving/)
 - [bacon tattoo](https://beauty.allwomenstalk.com/you-wont-believe-these-food-tattoos-actually-exist/)
-- [fall recipes lunch](https://food.allwomenstalk.com/hungry-try-these-healthy-fall-lunch-ideas/)
+- [best fruits for fiber](https://food.allwomenstalk.com/top-highest-fiber-fruits/)
 - [choline foods](https://food.allwomenstalk.com/these-are-jamie-olivers-hero-foods/)
 - [10 Yummy Salads to Cool down Your Summer ...](https://cooking.allwomenstalk.com/10-yummy-salads-to-cool-down-your-summer/)
 - [9 Healthiest Vegetables to Add to Your Diet ...](https://diet.allwomenstalk.com/healthiest-vegetables-to-add-to-your-diet/)

@@ -3,7 +3,7 @@ title: "7 Tips to Help You Stick to Your Diet While on Vacation ..."
 description: "Plan Ahead; Pack Snacks; Salad Caution; Watch Portion Size; Don’t Drink Your Calories; More ..."
 url: "https://diet.allwomenstalk.com/tips-to-help-you-stick-to-your-diet-while-on-vacation/"
 category: "diet"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Tips to Help You Stick to Your Diet While on Vacation ...
@@ -42,16 +42,16 @@ I hope these tips will help you stick to your diet during your next vacation. Wh
 
 ## Related Posts
 
-- [eating healthy in disney world](https://food.allwomenstalk.com/ways-to-eat-healthy-at-disney-world/)
-- [how to include spinach in your diet](https://food.allwomenstalk.com/sneaky-ways-to-add-spinach-to-your-diet/)
-- [how to stop fast food addiction](https://diet.allwomenstalk.com/tips-for-beating-a-fast-food-addiction-starting-today/)
+- [how to avoid food temptation](https://diet.allwomenstalk.com/ways-to-resist-temptation-when-it-comes-to-food/)
+- [a food label ingredient list reads](https://diet.allwomenstalk.com/quick-ways-to-read-a-food-label-to-tell-if-its-healthy-or-not/)
 - [coconut flour side effects](https://health.allwomenstalk.com/ways-coconut-flour-can-help-you-ditch-those-sugar-cravings/)
 - [navigate grocery store](https://lifestyle.allwomenstalk.com/simple-steps-for-navigating-through-the-grocery-store/)
-- [how to avoid food temptation](https://diet.allwomenstalk.com/ways-to-resist-temptation-when-it-comes-to-food/)
 - [vegan cat food study](https://food.allwomenstalk.com/points-to-remember-when-turning-vegan/)
-- [cooking yourself thin recipes](https://diet.allwomenstalk.com/simple-ways-to-cook-yourself-thin/)
-- [a food label ingredient list reads](https://diet.allwomenstalk.com/quick-ways-to-read-a-food-label-to-tell-if-its-healthy-or-not/)
+- [how to include spinach in your diet](https://food.allwomenstalk.com/sneaky-ways-to-add-spinach-to-your-diet/)
+- [how to stop fast food addiction](https://diet.allwomenstalk.com/tips-for-beating-a-fast-food-addiction-starting-today/)
 - [eat differently](https://diet.allwomenstalk.com/ways-to-deal-with-eating-differently-than-others/)
+- [eating healthy in disney world](https://food.allwomenstalk.com/ways-to-eat-healthy-at-disney-world/)
+- [cooking yourself thin recipes](https://diet.allwomenstalk.com/simple-ways-to-cook-yourself-thin/)
 - [11 Tips on How to Keep to Your Diet ...](https://allwomenstalk.com/tips-on-how-to-keep-to-your-diet/)
 - [9 Tips to Eating Healthy on Vacation ...](https://allwomenstalk.com/9-tips-to-eating-healthy-on-vacation/)
 
