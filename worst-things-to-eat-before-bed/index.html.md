@@ -3,7 +3,7 @@ title: "15 Worst Things to Eat before Bed ..."
 description: "Ice Cream; Red Meat; Pasta; Pizza; Alcohol; More ..."
 url: "https://diet.allwomenstalk.com/worst-things-to-eat-before-bed/"
 category: "diet"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 15 Worst Things to Eat before Bed ...
@@ -104,16 +104,16 @@ Scratch these foods of your nighttime snack list and your body will thank you! T
 
 ## Related Posts
 
-- [how to sleep in high temperature](https://health.allwomenstalk.com/steps-to-help-you-sleep-in-high-temperatures/)
 - [freefaller sleeping position personality](https://lifestyle.allwomenstalk.com/sleep-positions-and-what-they-say-about-your-personality/)
+- [how to sleep in high temperature](https://health.allwomenstalk.com/steps-to-help-you-sleep-in-high-temperatures/)
+- [safe 7 sleep](https://parenting.allwomenstalk.com/must-follow-tips-for-safe-sleep-for-your-baby/)
+- [theories why we dream](https://lifestyle.allwomenstalk.com/interesting-theories-of-why-we-dream/)
 - [flight accessories for sleeping](https://travel.allwomenstalk.com/tips-for-sleeping-on-a-plane/)
 - [freefaller sleeping position](https://health.allwomenstalk.com/sleeping-positions-and-what-they-say-about-you/)
-- [theories why we dream](https://lifestyle.allwomenstalk.com/interesting-theories-of-why-we-dream/)
-- [how to wake up on time for work](https://lifestyle.allwomenstalk.com/time-management-tips-to-get-you-to-work-on-time-in-the-morning/)
 - [things to think about when trying to sleep](https://health.allwomenstalk.com/things-to-think-about-before-bed/)
-- [waking up in the middle of the night](https://health.allwomenstalk.com/reasons-you-wake-up-in-the-middle-of-the-night-every-single-night/)
 - [funsummer10](https://lifestyle.allwomenstalk.com/ways-to-become-a-morning-person/)
-- [safe 7 sleep](https://parenting.allwomenstalk.com/must-follow-tips-for-safe-sleep-for-your-baby/)
+- [how to wake up on time for work](https://lifestyle.allwomenstalk.com/time-management-tips-to-get-you-to-work-on-time-in-the-morning/)
+- [waking up in the middle of the night](https://health.allwomenstalk.com/reasons-you-wake-up-in-the-middle-of-the-night-every-single-night/)
 - [7 Healthy Snacks to Have before Dinner ...](https://diet.allwomenstalk.com/healthy-snacks-to-have-before-dinner/)
 - [7 Most Unhealthy Foods to Avoid ...](https://health.allwomenstalk.com/most-unhealthy-foods-to-avoid/)
 

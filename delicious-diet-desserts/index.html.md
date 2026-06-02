@@ -3,7 +3,7 @@ title: "7 Delicious Diet Desserts ..."
 description: "Vegan Banana Peanut Butter Ice Cream; Honey Baked Pears; Indoor S’mores; Lemon Cake; Diet Coke Brownies; More ..."
 url: "https://diet.allwomenstalk.com/delicious-diet-desserts/"
 category: "diet"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Delicious Diet Desserts ...

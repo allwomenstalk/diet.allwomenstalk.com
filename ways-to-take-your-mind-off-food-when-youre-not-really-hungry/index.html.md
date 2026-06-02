@@ -3,7 +3,7 @@ title: "9 Ways to Take Your Mind off Food when Youre Not Really Hungry ..."
 description: "Paint Your Nails; Walk Your Dog (or Yourself!); Drink Some Tea; Drink Some Cocoa; Go Shopping; More ..."
 url: "https://diet.allwomenstalk.com/ways-to-take-your-mind-off-food-when-youre-not-really-hungry/"
 category: "diet"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 9 Ways to Take Your Mind off Food when Youre Not Really Hungry ...
@@ -68,16 +68,16 @@ If you have a tip for ways to take your mind off food when you’re not really h
 
 ## Related Posts
 
-- [tricks for eating less](https://diet.allwomenstalk.com/tricks-to-help-you-eat-less-all-day-long/)
-- [curb sweet tooth](https://diet.allwomenstalk.com/amazing-ways-to-curb-your-sweet-tooth/)
-- [healthy options mexican restaurant](https://food.allwomenstalk.com/tips-on-how-to-eat-healthy-at-a-mexican-restaurant/)
-- [i want to start eating healthy but dont know where...](https://health.allwomenstalk.com/tips-for-getting-healthy-if-you-dont-know-where-to-start/)
-- [how to eat healthy at chinese restaurant](https://food.allwomenstalk.com/tips-for-eating-healthy-at-a-chinese-restaurant/)
 - [healthy foods when eating out](https://food.allwomenstalk.com/ways-to-eat-healthy-when-dining-out/)
+- [healthy options mexican restaurant](https://food.allwomenstalk.com/tips-on-how-to-eat-healthy-at-a-mexican-restaurant/)
 - [food for extremely picky eaters toddler](https://food.allwomenstalk.com/tips-for-picky-eaters-to-get-them-to-enjoy-their-food/)
 - [how to eat healthy at italian restaurant](https://food.allwomenstalk.com/ways-to-eat-healthfully-at-an-italian-restaurant/)
 - [how to have a healthy relationship with food and l...](https://diet.allwomenstalk.com/ways-to-foster-a-healthy-relationship-with-food/)
+- [i want to start eating healthy but dont know where...](https://health.allwomenstalk.com/tips-for-getting-healthy-if-you-dont-know-where-to-start/)
 - [how to make baked goods healthier](https://food.allwomenstalk.com/ways-to-make-your-baked-goods-healthier/)
+- [tricks for eating less](https://diet.allwomenstalk.com/tricks-to-help-you-eat-less-all-day-long/)
+- [curb sweet tooth](https://diet.allwomenstalk.com/amazing-ways-to-curb-your-sweet-tooth/)
+- [how to eat healthy at chinese restaurant](https://food.allwomenstalk.com/tips-for-eating-healthy-at-a-chinese-restaurant/)
 - [7 Ways to Control Your Cravings ...](https://cooking.allwomenstalk.com/7-ways-to-control-your-cravings/)
 - [8 Things to Help Suppress Your Appetite ...](https://allwomenstalk.com/8-things-to-help-suppress-your-appetite/)
 

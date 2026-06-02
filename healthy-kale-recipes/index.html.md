@@ -3,7 +3,7 @@ title: "7 Healthy Kale Recipes ..."
 description: "Kale Chips Recipe...; Kale, Apple, and Pancetta Salad Recipe...; Salsa-Braised Kale Recipe...; Two-Bean Soup with Kale Recipe...; Eggplant Ratatouille with Beans and Kale Recipe...; More ..."
 url: "https://diet.allwomenstalk.com/healthy-kale-recipes/"
 category: "diet"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Healthy Kale Recipes ...
@@ -213,14 +213,14 @@ Whether you want to make **kale recipes** to help kick start your new healthy ha
 
 - [crescent roll instructions](https://cooking.allwomenstalk.com/easy-crescent-roll-recipes/)
 - [new thanksgiving dinner ideas](https://allwomenstalk.com/7-new-ideas-for-thanksgiving-dinner/)
-- [planning a dinner party for 10](https://lifestyle.allwomenstalk.com/easy-tips-on-throwing-the-best-dinner-party-ever/)
-- [what is the worst food for you](https://food.allwomenstalk.com/simple-dinner-anyone-can-learn-to-make/)
 - [ethnic food ideas](https://cooking.allwomenstalk.com/healthy-and-filling-ethnic-recipes-to-try-this-fall/)
+- [500 calorie lunches for work](https://diet.allwomenstalk.com/quick-and-easy-meals-under-500-calories/)
+- [what is the worst food for you](https://food.allwomenstalk.com/simple-dinner-anyone-can-learn-to-make/)
+- [best egg sandwich recipes](https://cooking.allwomenstalk.com/great-egg-sandwich-recipes-for-everyone/)
+- [fall salad recipes](https://food.allwomenstalk.com/ways-to-make-salad-taste-better/)
+- [planning a dinner party for 10](https://lifestyle.allwomenstalk.com/easy-tips-on-throwing-the-best-dinner-party-ever/)
 - [substitutes for cooking](https://food.allwomenstalk.com/simple-ingredient-substitutions-to-try/)
 - [reuse cans](https://diy.allwomenstalk.com/clever-ways-to-repurpose-tuna-cans/)
-- [fall salad recipes](https://food.allwomenstalk.com/ways-to-make-salad-taste-better/)
-- [500 calorie lunches for work](https://diet.allwomenstalk.com/quick-and-easy-meals-under-500-calories/)
-- [best egg sandwich recipes](https://cooking.allwomenstalk.com/great-egg-sandwich-recipes-for-everyone/)
 - [7 Meat and Potatoes Recipes ...](https://eatial.com/7-meat-and-potatoes-recipes/)
 - [7 Tasty Slow-Cooker Recipes ...](https://cooking.allwomenstalk.com/tasty-slow-cooker-recipes/)
 
