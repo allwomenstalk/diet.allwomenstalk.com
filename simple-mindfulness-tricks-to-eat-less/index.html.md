@@ -3,7 +3,7 @@ title: "5 Simple Mindfulness Tricks to Eat Less ..."
 description: "Turn off Devices; Set Limits; Sit down; Small Plates; Non Dominant Hand; More ..."
 url: "https://diet.allwomenstalk.com/simple-mindfulness-tricks-to-eat-less/"
 category: "diet"
-last_updated: "2026-06-02"
+last_updated: "2026-06-06"
 ---
 
 # 5 Simple Mindfulness Tricks to Eat Less ...
