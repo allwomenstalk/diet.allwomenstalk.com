@@ -1,12 +1,12 @@
 ---
-title: "7 Signs Youre Obsessed with Dieting ..."
+title: "7 Signs You're Obsessed with Dieting ..."
 description: "You Can’t Indulge, Even a Little; You’re Judgy; You Weigh in Every Day; You Count Every Calorie, Always; You Lose Sleep over It; More ..."
 url: "https://diet.allwomenstalk.com/signs-youre-obsessed-with-dieting/"
 category: "diet"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Signs Youre Obsessed with Dieting ...
+# 7 Signs You're Obsessed with Dieting ...
 
 The signs you’re obsessed with dieting are sometimes subtle, sometimes obvious. Friends might roll their eyes at your careful calorie counting, but if they’ve expressed concern, not just annoyance, you might want to take a closer look. If you think you might be a little diet crazy, read on. Here are 7 signs you are obsessed with dieting.
 
@@ -44,16 +44,16 @@ Top Image Source: [blogspot.in](http://myitalianway.blogspot.com/)
 
 ## Related Posts
 
-- [15 Signs You Might Have Diabetes ...](https://health.allwomenstalk.com/signs-you-might-have-diabetes/)
-- [7 Signs of Prescription Drug Abuse ...](https://health.allwomenstalk.com/signs-of-prescription-drug-abuse/)
+- [20 Signs You Are Addicted to Travel ...](https://travel.allwomenstalk.com/signs-you-are-addicted-to-travel/)
+- [10 Critical Warning Signs of an Eating Disorder .....](https://health.allwomenstalk.com/critical-warning-signs-of-an-eating-disorder/)
 - [7 Telling Signs You Are Exercising Too Much ...](https://health.allwomenstalk.com/telling-signs-you-are-exercising-too-much/)
 - [21 Warning Signs Your Thyroid is out of Whack ...](https://health.allwomenstalk.com/warning-signs-your-thyroid-is-out-of-whack/)
-- [20 Signs You Are Addicted to Travel ...](https://travel.allwomenstalk.com/signs-you-are-addicted-to-travel/)
+- [7 Signs You're in a Dead End Job ...](https://money.allwomenstalk.com/signs-youre-in-a-dead-end-job/)
 - [signs your body is in starvation mode](https://diet.allwomenstalk.com/signs-that-your-diet-has-gone-too-far/)
+- [15 Signs You Might Have Diabetes ...](https://health.allwomenstalk.com/signs-you-might-have-diabetes/)
+- [7 Signs of Prescription Drug Abuse ...](https://health.allwomenstalk.com/signs-of-prescription-drug-abuse/)
 - [shopaholic rehab](https://money.allwomenstalk.com/ways-to-tell-if-you-are-a-shopaholic/)
-- [10 Critical Warning Signs of an Eating Disorder .....](https://health.allwomenstalk.com/critical-warning-signs-of-an-eating-disorder/)
-- [7 Signs Youre Getting Burnt out from Work ...](https://health.allwomenstalk.com/signs-youre-getting-burnt-out-from-work/)
-- [7 Signs Youre in a Dead End Job ...](https://money.allwomenstalk.com/signs-youre-in-a-dead-end-job/)
+- [7 Signs You're Getting Burnt out from Work ...](https://health.allwomenstalk.com/signs-youre-getting-burnt-out-from-work/)
 - [7 Reasons You Might Be Struggling to Lose Weight ....](https://weightloss.allwomenstalk.com/7-reasons-you-might-be-struggling-to-lose-weight/)
 - [7 Reasons Not to Diet ...](https://diet.allwomenstalk.com/7-reasons-not-to-diet/)
 

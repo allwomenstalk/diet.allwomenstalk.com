@@ -3,7 +3,7 @@ title: "5 Simple Mindfulness Tricks to Eat Less ..."
 description: "Turn off Devices; Set Limits; Sit down; Small Plates; Non Dominant Hand; More ..."
 url: "https://diet.allwomenstalk.com/simple-mindfulness-tricks-to-eat-less/"
 category: "diet"
-last_updated: "2026-06-06"
+last_updated: "2026-06-13"
 ---
 
 # 5 Simple Mindfulness Tricks to Eat Less ...
@@ -32,7 +32,7 @@ Apparently, eating with the fork in your nondominant hand is a clever way to eat
 
 ## Related Posts
 
-- [5 Tips on Resisting the Food Temptation ...](https://allwomenstalk.com/resisting-the-food-temptation/)
+- [5 Tips on Resisting the "Food Temptation" ...](https://allwomenstalk.com/resisting-the-food-temptation/)
 - [10 Tricks for Eating Less ...](https://allwomenstalk.com/10-tricks-for-eating-less/)
 - [5 Tips on Eating Often and Losing Weight ...](https://allwomenstalk.com/5-tips-on-eating-often-and-losing-weight/)
 - [5 Ways to Eat More and Weigh Less ...](https://diet.allwomenstalk.com/ways-to-eat-more-and-weigh-less/)

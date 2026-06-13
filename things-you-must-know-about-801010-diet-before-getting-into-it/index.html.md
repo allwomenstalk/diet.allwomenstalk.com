@@ -1,12 +1,12 @@
 ---
-title: "Everything You Ever Wanted to Know about the 801010 Diet ..."
+title: "Everything You Ever Wanted to Know about the 80/10/10 Diet ..."
 description: "Two is Not Better than One; You Need to Increase Your Calorie Intake; No Cooked FOOD is Allowed; Energy Spike; It’s Best for Vegan Athletes; More ..."
 url: "https://diet.allwomenstalk.com/things-you-must-know-about-801010-diet-before-getting-into-it/"
 category: "diet"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Everything You Ever Wanted to Know about the 801010 Diet ...
+# Everything You Ever Wanted to Know about the 80/10/10 Diet ...
 
 You can’t really go a day without scrolling through Instagram and seeing pictures of delicious fruit organized in the most aesthetically pleasing manner from people who are following the 80/10/10 diet. It seems like every person out there is jumping on the raw food train and feels ecstatically happy about it! This meal plan follows the rule of your diet consisting of 80 percent carbs from fruits and leafy vegetables, 10 percent protein from nuts and 10 percent fat from avocado and coconut. Whether you want to try out 80/10/10 diet is up to you, but here are some things you should know beforehand.
 
@@ -42,16 +42,16 @@ The 80/10/10 diet has blown up on the Internet and it’s gaining a lot of atten
 
 ## Related Posts
 
-- [kinds of hunger](https://diet.allwomenstalk.com/types-of-hunger-you-should-be-able-to-distinguish/)
-- [strong skinny people](https://fitness.allwomenstalk.com/reasons-to-focus-on-being-strong-instead-of-skinny/)
-- [why cant i get a six pack](https://fitness.allwomenstalk.com/reasons-six-pack-abs-are-really-overrated/)
-- [is macaroni and cheese good for acid reflux](https://food.allwomenstalk.com/fatty-foods-that-will-trigger-heartburn-or-at-least-ruin-your-diet/)
-- [paula deen spanish rice](https://food.allwomenstalk.com/heres-why-you-should-never-run-out-of-rice/)
-- [low-fiber restaurant food](https://food.allwomenstalk.com/foods-to-avoid-if-youre-on-a-low-fiber-diet/)
-- [is skipping meals bad](https://health.allwomenstalk.com/you-need-to-know-why-skipping-meals-is-bad-for-your-health/)
-- [orthorexics](https://health.allwomenstalk.com/eating-disorder-alert-see-if-you-could-be-orthorexic/)
 - [156 calories](https://food.allwomenstalk.com/youll-learn-so-much-from-these-calorie-infographics/)
+- [orthorexics](https://health.allwomenstalk.com/eating-disorder-alert-see-if-you-could-be-orthorexic/)
+- [paula deen spanish rice](https://food.allwomenstalk.com/heres-why-you-should-never-run-out-of-rice/)
+- [is skipping meals bad](https://health.allwomenstalk.com/you-need-to-know-why-skipping-meals-is-bad-for-your-health/)
+- [is macaroni and cheese good for acid reflux](https://food.allwomenstalk.com/fatty-foods-that-will-trigger-heartburn-or-at-least-ruin-your-diet/)
+- [low-fiber restaurant food](https://food.allwomenstalk.com/foods-to-avoid-if-youre-on-a-low-fiber-diet/)
 - [does the color of food affect your appetite](https://food.allwomenstalk.com/did-you-know-that-these-colors-affect-your-appetite/)
+- [kinds of hunger](https://diet.allwomenstalk.com/types-of-hunger-you-should-be-able-to-distinguish/)
+- [why can't i get a six pack](https://fitness.allwomenstalk.com/reasons-six-pack-abs-are-really-overrated/)
+- [strong skinny people](https://fitness.allwomenstalk.com/reasons-to-focus-on-being-strong-instead-of-skinny/)
 - [10 Foods to Eat to Lose Weight ...](https://allwomenstalk.com/10-foods-to-eat-to-lose-weight/)
 - [10 Tricks for Eating Less ...](https://allwomenstalk.com/10-tricks-for-eating-less/)
 

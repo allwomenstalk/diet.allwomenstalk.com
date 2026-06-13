@@ -1,12 +1,12 @@
 ---
-title: "Bad Signs Youre Eating Too Many Carbs ..."
+title: "Bad Signs You're Eating Too Many Carbs 🥨 ..."
 description: "You’re Feeling Sluggish; Mood Swings; Sugar Craving; Hunger Pangs; Not Losing Weight; More ..."
 url: "https://diet.allwomenstalk.com/signs-youre-eating-too-many-carbs/"
 category: "diet"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Bad Signs Youre Eating Too Many Carbs  ...
+# Bad Signs You're Eating Too Many Carbs 🥨 ...
 
 There are some **signs you're eating too many carbs**. Did you know that health experts recommend that a person who is eating normally and healthily, but not following any specific diet, should be getting between 45 and 65 percent of their daily calories via various carbohydrates? The tricky part about this is that when they say carbohydrates, things like pasta, doughnuts and lots of potato chips aren’t necessarily what they have in mind! The world of carbs can be a confusing path for somebody who isn’t nutritionally savvy, but to make it a little easier for you to understand, here are some sure-fire **signs you're eating too many carbs**.
 
@@ -36,16 +36,16 @@ Is your cholesterol high and you aren’t quite sure why? It could be down to yo
 
 ## Related Posts
 
-- [Diet Excuses....do You Fit in](https://allwomenstalk.com/diet-excusesdo-you-fit-in/)
-- [If Youre Having Trouble Losing Weight and Keeping ...](https://allwomenstalk.com/if-youre-having-trouble-losing-weight-and-keeping-it-off-maybe-its-something-you-ate/)
-- [fitspiration](https://fitness.allwomenstalk.com/how-to-use-fitspiration-the-wrong-way/)
-- [tami torossian](https://weightloss.allwomenstalk.com/why-you-should-count-nutrients-not-calories/)
-- [common weight loss mistakes](https://weightloss.allwomenstalk.com/the-most-common-weight-loss-mistakes/)
 - [i stopped exercising and lost weight](https://weightloss.allwomenstalk.com/i-thought-i-wasnt-losing-weight-but-then-i-stopped-exercising/)
-- [how do i stop thinking about food](https://weightloss.allwomenstalk.com/train-your-brain-to-stop-thinking-about-food-if-youre-on-the-road-to-losing-weight/)
-- [what not to eat before a workout](https://food.allwomenstalk.com/foods-you-should-never-eat-before-a-workout/)
-- [Can Chinese Food Resolve West Obesity](https://allwomenstalk.com/can-chinese-food-resolve-obesity/)
 - [swimming to lose belly fat](https://weightloss.allwomenstalk.com/mistakes-you-make-when-trying-to-lose-belly-fat/)
+- [Can Chinese Food Resolve West Obesity?](https://allwomenstalk.com/can-chinese-food-resolve-obesity/)
+- [how do i stop thinking about food](https://weightloss.allwomenstalk.com/train-your-brain-to-stop-thinking-about-food-if-youre-on-the-road-to-losing-weight/)
+- [If You're Having Trouble Losing Weight and Keeping...](https://allwomenstalk.com/if-youre-having-trouble-losing-weight-and-keeping-it-off-maybe-its-something-you-ate/)
+- [common weight loss mistakes](https://weightloss.allwomenstalk.com/the-most-common-weight-loss-mistakes/)
+- [what not to eat before a workout](https://food.allwomenstalk.com/foods-you-should-never-eat-before-a-workout/)
+- [Diet Excuses!....do You Fit in??](https://allwomenstalk.com/diet-excusesdo-you-fit-in/)
+- [tami torossian](https://weightloss.allwomenstalk.com/why-you-should-count-nutrients-not-calories/)
+- [fitspiration](https://fitness.allwomenstalk.com/how-to-use-fitspiration-the-wrong-way/)
 - [7 Scrumptious Carbs That Will Help You Shed Pounds...](https://weightloss.allwomenstalk.com/scrumptious-carbs-that-will-help-you-shed-pounds/)
 - [7 Healthy Carbs That Will Help You Lose Weight ...](https://weightloss.allwomenstalk.com/healthy-carbs-that-will-help-you-lose-weight/)
 

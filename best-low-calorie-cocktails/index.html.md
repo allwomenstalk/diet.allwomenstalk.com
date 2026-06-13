@@ -3,7 +3,7 @@ title: "7 Best Low-calorie Cocktails ..."
 description: "Rum and Diet Coke; Coconut Milk and Gin with a Splash or Seltzer; A Hot Toddy; Tequila over Ice with Two Limes; Red Wine Spritzer; More ..."
 url: "https://diet.allwomenstalk.com/best-low-calorie-cocktails/"
 category: "diet"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Best Low\-calorie Cocktails ...
@@ -43,15 +43,15 @@ Some people say low-calorie cocktails will never match up to the real thing, but
 ## Related Posts
 
 - [10 Healthy and Yummy Juice Recipes You Should Try ...](https://health.allwomenstalk.com/juice-recipes-to-try/)
-- [7 Raw Juices to Try This Fall to Reboot Your Syste...](https://health.allwomenstalk.com/raw-juices-to-try-this-fall-to-reboot-your-system-and-help-you-feel-brand-new/)
-- [coffee replacement drinks](https://health.allwomenstalk.com/healthy-drinks-to-substitute-for-your-coffee-this-week/)
-- [recipes with apple cider](https://food.allwomenstalk.com/apple-cider-recipes-to-lust-over-this-fall/)
-- [enhance your drinking water](https://food.allwomenstalk.com/tasty-ways-to-enhance-drinking-water-this-fall/)
 - [persona 3 portable drink sharing my name](https://food.allwomenstalk.com/magnificent-breakfast-smoothies-that-will-make-your-tummy-smile/)
-- [7 Best Wines for Novices That Will Not Disappoint ...](https://food.allwomenstalk.com/best-wines-for-novices-that-will-not-disappoint/)
-- [7 Yummy Hot Drink Ideas to Try This Season ...](https://food.allwomenstalk.com/yummy-hot-drink-ideas-to-try-this-season/)
+- [7 Raw Juices to Try This Fall to Reboot Your Syste...](https://health.allwomenstalk.com/raw-juices-to-try-this-fall-to-reboot-your-system-and-help-you-feel-brand-new/)
+- [enhance your drinking water](https://food.allwomenstalk.com/tasty-ways-to-enhance-drinking-water-this-fall/)
+- [coffee replacement drinks](https://health.allwomenstalk.com/healthy-drinks-to-substitute-for-your-coffee-this-week/)
 - [7 Tasty Juicing Ingredients for Your Parched Palat...](https://health.allwomenstalk.com/tasty-juicing-ingredients-for-your-parched-palate/)
 - [herbal tea that tastes like coffee](https://health.allwomenstalk.com/delicious-herbal-alternatives-to-tea-and-coffee-that-taste-divine/)
+- [7 Yummy Hot Drink Ideas to Try This Season ...](https://food.allwomenstalk.com/yummy-hot-drink-ideas-to-try-this-season/)
+- [recipes with apple cider](https://food.allwomenstalk.com/apple-cider-recipes-to-lust-over-this-fall/)
+- [7 Best Wines for Novices That Will Not Disappoint ...](https://food.allwomenstalk.com/best-wines-for-novices-that-will-not-disappoint/)
 - [7 Great Martini Recipes ...](https://allwomenstalk.com/7-great-martini-recipes/)
 - [7 Halloween-inspired Cocktails ...](https://allwomenstalk.com/7-halloween-inspired-cocktails/)
 

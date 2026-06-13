@@ -1,12 +1,12 @@
 ---
-title: "7 Reasons You Cant Stop Binging at Night ..."
+title: "7 Reasons You Can't Stop Binging at Night ..."
 description: "You’re Trying to Numb; You’re Hungry; You’re Addicted to a Food; Your Hormones Are Changing; You’re Diet Confused; More ..."
 url: "https://diet.allwomenstalk.com/reasons-you-cant-stop-binging-at-night/"
 category: "diet"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Reasons You Cant Stop Binging at Night ...
+# 7 Reasons You Can't Stop Binging at Night ...
 
 I chose to write about reasons you can’t stop binging because it is an issue many of you know is very personal to me, and one I discuss a great deal on The Soulful Spoon, my blog about recovery from an eating disorder. I don’t keep it a secret that binging is something I suffered from after recovering from a ten year battle with binging, orthorexia, and anorexia. I suffered a total of 15 years in the imprisonment of my disorder, and now, my goal is to reach out to other to help them too. Surprisingly, I’ve received numerous emails from readers on All Women Stalk that said they have the same issue as I did with binging, and so I thought it was important to write more about why you can’t seem to stop binging. Binging can occur at any time of the day, but nighttime seems to be a time most of us are prone to indulge in this unhealthy behavior. The reason isn’t as simple as just losing control, as I’ll show you below. Check out the reasons you can’t stop binging, no matter what you try. I hope it provides some insight, and if nothing else, understanding from someone’s who been there and beaten it - twice.
 
@@ -44,16 +44,16 @@ If you suffer from binging, I know it is embarrassing. Night binging is one of t
 
 ## Related Posts
 
-- [smoothies bad for weight loss](https://food.allwomenstalk.com/things-to-never-put-in-your-green-smoothie-for-weight-loss/)
+- [bingeing on](https://health.allwomenstalk.com/symptoms-of-binging-that-often-go-overlooked/)
 - [calories in 1 tsp sugar](https://food.allwomenstalk.com/natural-sweeteners-that-make-you-gain-weight/)
+- [worst coffee](https://diet.allwomenstalk.com/worst-things-to-order-at-coffee-shops-for-your-weight/)
+- [smoothies bad for weight loss](https://food.allwomenstalk.com/things-to-never-put-in-your-green-smoothie-for-weight-loss/)
+- [why see a dietitian](https://health.allwomenstalk.com/important-reasons-to-see-a-dietitian/)
 - [is shawarma good for protein](https://food.allwomenstalk.com/foods-to-never-eat-after-your-workout/)
 - [how to choose a nutritionist](https://health.allwomenstalk.com/things-to-consider-before-choosing-a-nutritionist/)
-- [french women dont get fat](https://weightloss.allwomenstalk.com/reasons-french-women-dont-get-fat/)
-- [bingeing on](https://health.allwomenstalk.com/symptoms-of-binging-that-often-go-overlooked/)
-- [why dieting doesnt work](https://diet.allwomenstalk.com/reasons-dieting-doesnt-work-for-most-people/)
-- [why see a dietitian](https://health.allwomenstalk.com/important-reasons-to-see-a-dietitian/)
-- [worst coffee](https://diet.allwomenstalk.com/worst-things-to-order-at-coffee-shops-for-your-weight/)
+- [french women don't get fat](https://weightloss.allwomenstalk.com/reasons-french-women-dont-get-fat/)
 - [preparing food in advance](https://weightloss.allwomenstalk.com/reasons-why-preparing-meals-in-advance-is-effective-for-weight-loss/)
+- [why dieting doesn't work](https://diet.allwomenstalk.com/reasons-dieting-doesnt-work-for-most-people/)
 - [8 Dangers of over Snacking ...](https://health.allwomenstalk.com/8-dangers-of-over-snacking/)
 - [8 Signs You Have an Overeating Problem ...](https://allwomenstalk.com/8-signs-you-have-an-overeating-problem/)
 

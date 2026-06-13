@@ -3,7 +3,7 @@ title: "10 Tips on How to Control Holiday Eating ..."
 description: "Eat Protein First; Pick Fruits and Veggies; Have Everything; Have a Good Breakfast; Drink Water; More ..."
 url: "https://diet.allwomenstalk.com/tips-on-how-to-control-holiday-eating/"
 category: "diet"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 10 Tips on How to Control Holiday Eating ...
@@ -54,16 +54,16 @@ Knowing how to control the amount you eat over Christmas is not as tricky as you
 
 ## Related Posts
 
-- [8 Ways to Eat Healthy While Being Stuck in a Cubic...](https://diet.allwomenstalk.com/ways-to-eat-healthy-while-being-stuck-in-a-cubicle/)
 - [8 Ways to Stop Overeating ...](https://weightloss.allwomenstalk.com/ways-to-stop-overeating/)
-- [7 Ways to Tell Your Diet is Working ...](https://diet.allwomenstalk.com/ways-to-tell-your-diet-is-working/)
 - [8 Essential Healthy Eating Tips for Teens and Pret...](https://diet.allwomenstalk.com/essential-healthy-eating-tips-for-teens-and-preteens/)
-- [8 Tips for Handling Emotinal Eating ...](https://health.allwomenstalk.com/tips-for-handling-emotinal-eating/)
-- [7 Healthy Foods to Indulge in While Dieting ...](https://diet.allwomenstalk.com/healthy-foods-to-indulge-in-while-dieting/)
-- [8 Places to Find Diet Encouragement ...](https://diet.allwomenstalk.com/places-to-find-diet-encouragement/)
 - [7 Tips to Setting Realistic Health Goals for 2013....](https://health.allwomenstalk.com/tips-to-setting-realistic-health-goals-for/)
+- [7 Healthy Foods to Indulge in While Dieting ...](https://diet.allwomenstalk.com/healthy-foods-to-indulge-in-while-dieting/)
 - [8 Health Tips for the Holidays ...](https://health.allwomenstalk.com/health-tips-for-the-holidays/)
+- [8 Ways to Eat Healthy While Being Stuck in a Cubic...](https://diet.allwomenstalk.com/ways-to-eat-healthy-while-being-stuck-in-a-cubicle/)
 - [7 Simple Ways to Improve Your Diet ...](https://health.allwomenstalk.com/simple-ways-to-improve-your-diet/)
+- [7 Ways to Tell Your Diet is Working ...](https://diet.allwomenstalk.com/ways-to-tell-your-diet-is-working/)
+- [8 Places to Find Diet Encouragement ...](https://diet.allwomenstalk.com/places-to-find-diet-encouragement/)
+- [8 Tips for Handling Emotinal Eating ...](https://health.allwomenstalk.com/tips-for-handling-emotinal-eating/)
 - [7 Ways to Control Your Cravings ...](https://cooking.allwomenstalk.com/7-ways-to-control-your-cravings/)
 - [10 Ways Not to Gain Weight during the Holiday Seas...](https://allwomenstalk.com/10-ways-not-to-gain-weight-during-the-holiday-season/)
 

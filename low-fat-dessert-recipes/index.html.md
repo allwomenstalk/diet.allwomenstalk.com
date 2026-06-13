@@ -3,7 +3,7 @@ title: "7 Low Fat Dessert Recipes ..."
 description: "Ginger Cake; Coconut Crème Caramel with Pineapple Concassé; Cream Cheese Brownies; Double Caramel Turtle Cake; Basil Plum Granita; More ..."
 url: "https://diet.allwomenstalk.com/low-fat-dessert-recipes/"
 category: "diet"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Low Fat Dessert Recipes ...
