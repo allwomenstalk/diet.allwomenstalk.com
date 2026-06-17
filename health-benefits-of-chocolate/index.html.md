@@ -3,7 +3,7 @@ title: "7 Health Benefits of Eating Chocolate to Feel Less Guilty about Your Swe
 description: "Improves Memory; Controls Blood Pressure; Reduces Cravings; Treats a Cough; Boosts Skin Health; More ..."
 url: "https://diet.allwomenstalk.com/health-benefits-of-chocolate/"
 category: "diet"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Health Benefits of Eating Chocolate to Feel Less Guilty about Your Sweet Tooth ...
@@ -44,14 +44,14 @@ Because your vision relies on healthy blood flow to the retina, eating chocolate
 
 - [is chocolate milk good to drink after a workout](https://fitness.allwomenstalk.com/why-you-should-have-chocolate-milk-after-a-workout-rather-than-an-energy-drink/)
 - [best water detox for weight loss](https://food.allwomenstalk.com/detox-water-recipes-2/)
+- [yarrow benefits for periods](https://health.allwomenstalk.com/the-health-benefits-of-yarrow/)
+- [benefits of oral collagen](https://health.allwomenstalk.com/benefits-of-oral-collagen/)
+- [benefit of soy candles](https://lifestyle.allwomenstalk.com/some-interesting-reasons-why-you-should-use-soy-candles/)
+- [what happened to sparkpeople](https://weightloss.allwomenstalk.com/benefits-of-joining-sparkpeople-com/)
 - [pearlessence dewy glow serum](https://skincare.allwomenstalk.com/amazing-benefits-for-spritizing-rose-water-mist-every-day/)
 - [is homemade sweet tea good for you](https://food.allwomenstalk.com/southern-sweet-tea/)
-- [kissing benefits](https://love.allwomenstalk.com/health-benefits-of-kissing/)
 - [benefit of apple cider vinegar bath](https://beauty.allwomenstalk.com/why-you-should-treat-yourself-to-an-apple-cider-vinegar-bath/)
-- [what happened to sparkpeople](https://weightloss.allwomenstalk.com/benefits-of-joining-sparkpeople-com/)
-- [yarrow benefits for periods](https://health.allwomenstalk.com/the-health-benefits-of-yarrow/)
-- [benefit of soy candles](https://lifestyle.allwomenstalk.com/some-interesting-reasons-why-you-should-use-soy-candles/)
-- [benefits of oral collagen](https://health.allwomenstalk.com/benefits-of-oral-collagen/)
+- [kissing benefits](https://love.allwomenstalk.com/health-benefits-of-kissing/)
 - [7 Healthy and Diet-Friendly Alternatives to Your F...](https://diet.allwomenstalk.com/healthy-and-diet-friendly-alternatives-to-your-favorite-comfort-foods/)
 - [4 Things That Will Make You Feel Good about Eating...](https://allwomenstalk.com/make-you-feel-good-about-eating-chocolate/)
 

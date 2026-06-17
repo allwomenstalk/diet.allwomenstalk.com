@@ -3,7 +3,7 @@ title: "Make Drinks a Healthy Part of Your Meal Plan ..."
 description: "Read Labels Carefully; Watch the Sugar; Pay Attention to the Portion Size; Consider the Salt Too; Don't Be Tricked by Diet Drinks; More ..."
 url: "https://diet.allwomenstalk.com/make-drinks-a-healthy-part-of-your-meal-plan/"
 category: "diet"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # Make Drinks a Healthy Part of Your Meal Plan ...
@@ -49,16 +49,16 @@ What's your favorite drink? How to do you include it in a healthy meal plan?
 
 ## Related Posts
 
-- [This Drinks Menu Will Give You Beautiful Glowing S...](https://skincare.allwomenstalk.com/the-drink-menu-thatll-make-your-skin-even-more-beautiful/)
 - [How Can You Make the Perfect Cup of Tea?](https://food.allwomenstalk.com/how-can-you-make-the-perfect-cup-of-tea/)
-- [You Only Need These 21 Products to Throw the Perfe...](https://lifestyle.allwomenstalk.com/you-only-need-these-products-to-throw-the-perfect-party/)
 - [Motivational Water Bottles for Girls Who Hate to D...](https://health.allwomenstalk.com/motivational-water-bottles-for-girls-who-hate-to-drink/)
-- [7 Things You Need to Know when Making Smoothies .....](https://food.allwomenstalk.com/things-you-need-to-know-when-making-smoothies/)
-- [Say Bye to Lemon Water and Hello to Cucumber 🥒 Wa...](https://health.allwomenstalk.com/forget-lemon-water-time-to-give-cucumber-water-a-try/)
 - [17 Items That'll Help You Make Amazing Party Cockt...](https://food.allwomenstalk.com/items-thatll-help-you-make-amazing-party-cocktails/)
+- [You Only Need These 21 Products to Throw the Perfe...](https://lifestyle.allwomenstalk.com/you-only-need-these-products-to-throw-the-perfect-party/)
+- [Say Bye to Lemon Water and Hello to Cucumber 🥒 Wa...](https://health.allwomenstalk.com/forget-lemon-water-time-to-give-cucumber-water-a-try/)
+- [This Drinks Menu Will Give You Beautiful Glowing S...](https://skincare.allwomenstalk.com/the-drink-menu-thatll-make-your-skin-even-more-beautiful/)
+- [7 Things You Need to Know when Making Smoothies .....](https://food.allwomenstalk.com/things-you-need-to-know-when-making-smoothies/)
+- [Classic Cocktail Recipes Every Woman Should Learn ...](https://food.allwomenstalk.com/classic-cocktail-recipes-every-woman-should-learn-to-create/)
 - [addiction to starbucks](https://health.allwomenstalk.com/why-your-starbucks-addiction-is-actually-healthier-than-you-think/)
 - [Why Everyone is Drinking Tisane Already ...](https://health.allwomenstalk.com/why-everyone-is-drinking-tisane-already/)
-- [Classic Cocktail Recipes Every Woman Should Learn ...](https://food.allwomenstalk.com/classic-cocktail-recipes-every-woman-should-learn-to-create/)
 - [Drinks up ...](https://allwomenstalk.com/drinks-up/)
 - [7 Reasons to Put That Soda down and Choose a Healt...](https://health.allwomenstalk.com/reasons-to-put-that-soda-down-and-choose-a-healthy-drink-instead/)
 

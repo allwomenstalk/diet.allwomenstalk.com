@@ -3,7 +3,7 @@ title: "7 Tips for Calorie Counting ..."
 description: "Sign up for an Online Food Journal; Plan Ahead; Know Your Portion Sizes; Exercising = More Food for You; Swap Foods in Order to Eat More; More ..."
 url: "https://diet.allwomenstalk.com/tips-for-calorie-counting-2/"
 category: "diet"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Tips for Calorie Counting ...

@@ -3,7 +3,7 @@ title: "Nutrionalist Tips on How to Avoid Festive Overindulgence ..."
 description: "Mindful Drinking; Graze; Slow down; Fibre; Turkey; More ..."
 url: "https://diet.allwomenstalk.com/nutrionalist-tips-on-how-to-avoid-festive-overindulgence/"
 category: "diet"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # Nutrionalist Tips on How to Avoid Festive Overindulgence ...
@@ -32,15 +32,15 @@ If yours is the kind of family who has a choice of different meats out on the Ch
 
 ## Related Posts
 
-- [The Best Ways to Improve Your Diet This Year ...](https://diet.allwomenstalk.com/the-best-ways-to-improve-your-diet-this-year/)
-- [how to eat like an italian](https://travel.allwomenstalk.com/how-to-eat-like-a-local-when-youre-in-italy/)
-- [Pro Tips to Detox Your Body after Christmas over-I...](https://health.allwomenstalk.com/pro-tips-to-detox-your-body-after-christmas-over-indulgence/)
-- [Health Hacks to Improve Your Diet ...](https://diet.allwomenstalk.com/health-hacks-to-improve-your-diet/)
-- [7 Easy Health Hacks to Improve Your Diet ...](https://diet.allwomenstalk.com/easy-health-hacks-to-improve-your-diet/)
-- [From Clothes to Dieting and Everything in between!...](https://lifestyle.allwomenstalk.com/from-clothes-to-dieting-and-everything-in-between-how-to-prepare-for-your-christmas-plans/)
-- [Best Tips for Staying Healthy during Holiday Seaso...](https://health.allwomenstalk.com/best-tips-for-staying-healthy-during-holiday-season/)
 - [How You Can Change Your Diet to Help the Environme...](https://diet.allwomenstalk.com/how-you-can-change-your-diet-to-help-the-environment/)
+- [Best Tips for Staying Healthy during Holiday Seaso...](https://health.allwomenstalk.com/best-tips-for-staying-healthy-during-holiday-season/)
 - [Your Guide to Eating Better This Year ...](https://diet.allwomenstalk.com/your-guide-to-eating-better-this-year/)
+- [Health Hacks to Improve Your Diet ...](https://diet.allwomenstalk.com/health-hacks-to-improve-your-diet/)
+- [The Best Ways to Improve Your Diet This Year ...](https://diet.allwomenstalk.com/the-best-ways-to-improve-your-diet-this-year/)
+- [Pro Tips to Detox Your Body after Christmas over-I...](https://health.allwomenstalk.com/pro-tips-to-detox-your-body-after-christmas-over-indulgence/)
+- [From Clothes to Dieting and Everything in between!...](https://lifestyle.allwomenstalk.com/from-clothes-to-dieting-and-everything-in-between-how-to-prepare-for-your-christmas-plans/)
+- [how to eat like an italian](https://travel.allwomenstalk.com/how-to-eat-like-a-local-when-youre-in-italy/)
+- [7 Easy Health Hacks to Improve Your Diet ...](https://diet.allwomenstalk.com/easy-health-hacks-to-improve-your-diet/)
 - [healthier pizza](https://food.allwomenstalk.com/ways-to-make-your-pizza-healthier/)
 - [12 Tips on Watching What You Eat during Holidays ....](https://allwomenstalk.com/12-tips-on-watching-what-you-eat-during-holidays/)
 - [8 Ways to Stop Overeating ...](https://weightloss.allwomenstalk.com/ways-to-stop-overeating/)
