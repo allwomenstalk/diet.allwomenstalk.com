@@ -60,14 +60,14 @@ Top Image Source: [fooducate.com](https://www.fooducate.com/community/post/Ameri
 
 - [stay in budget](https://money.allwomenstalk.com/simple-ways-to-stay-under-budget/)
 - [diy cork board jewelry organizer](https://lifestyle.allwomenstalk.com/ways-to-organize-on-a-budget/)
-- [things to make instead of buy](https://diy.allwomenstalk.com/things-you-should-make-yourself-instead-of-buying/)
-- [tips for saving up for a car](https://money.allwomenstalk.com/tips-to-save-money-on-car-maintenance/)
+- [starbucks light ice charge](https://money.allwomenstalk.com/ways-to-save-money-in-starbucks/)
+- [how to avoid being ripped off by a dishonest mecha...](https://lifestyle.allwomenstalk.com/smart-ways-to-not-get-ripped-off-by-mechanics/)
 - [ways to save on cat costs](https://money.allwomenstalk.com/ways-to-save-on-pet-costs/)
 - [hillsville flea market 2023](https://lifestyle.allwomenstalk.com/means-to-get-the-most-out-of-flea-market-shopping/)
-- [starbucks light ice charge](https://money.allwomenstalk.com/ways-to-save-money-in-starbucks/)
 - [how to save money on your beauty routine](https://money.allwomenstalk.com/easy-ways-to-save-money-on-your-beauty-routine/)
+- [tips for saving up for a car](https://money.allwomenstalk.com/tips-to-save-money-on-car-maintenance/)
+- [things to make instead of buy](https://diy.allwomenstalk.com/things-you-should-make-yourself-instead-of-buying/)
 - [charity fundraising on a budget](https://money.allwomenstalk.com/ways-to-give-to-charity-on-a-budget/)
-- [how to avoid being ripped off by a dishonest mecha...](https://lifestyle.allwomenstalk.com/smart-ways-to-not-get-ripped-off-by-mechanics/)
 - [10 Ways to save Money by Being Frugal ...](https://money.allwomenstalk.com/ways-to-save-money-by-being-frugal/)
 - [10 Ways to Reduce Your Spending While Shopping ...](https://money.allwomenstalk.com/ways-to-reduce-your-spending-while-shopping/)
 
