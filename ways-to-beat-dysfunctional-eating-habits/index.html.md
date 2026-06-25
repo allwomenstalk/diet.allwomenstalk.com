@@ -3,7 +3,7 @@ title: "10 Ways to Beat Dysfunctional Eating Habits ..."
 description: "Start Slow; Make Gradual Changes; Look at What You Are Gaining; Get into the Kitchen; Stay Focused; More ..."
 url: "https://diet.allwomenstalk.com/ways-to-beat-dysfunctional-eating-habits/"
 category: "diet"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 10 Ways to Beat Dysfunctional Eating Habits ...

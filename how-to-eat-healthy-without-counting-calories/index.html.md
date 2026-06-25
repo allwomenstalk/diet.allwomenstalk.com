@@ -3,7 +3,7 @@ title: "How to Eat Healthy 🥗 without Counting Calories ..."
 description: "Ditch Sugar; Vegetables; Swap Sodas; Protein; Ignore Labels; More ..."
 url: "https://diet.allwomenstalk.com/how-to-eat-healthy-without-counting-calories/"
 category: "diet"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # How to Eat Healthy 🥗 without Counting Calories ...

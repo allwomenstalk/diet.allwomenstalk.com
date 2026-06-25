@@ -3,7 +3,7 @@ title: "7 Delicious Holiday Treats under 200 Calories ..."
 description: "Hot Chocolate with Skim Milk; Cake Pops; A Piece of Fudge; Gingerbread Men; A Handful of Chex Mix; More ..."
 url: "https://diet.allwomenstalk.com/delicious-holiday-treats-under-200-calories/"
 category: "diet"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 7 Delicious Holiday Treats under 200 Calories ...

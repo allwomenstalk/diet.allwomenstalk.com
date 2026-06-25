@@ -3,7 +3,7 @@ title: "8 Quick and Easy Meals under 500 Calories ..."
 description: "Bakes Beans on Toast: 359 Calories; Quorn Medley: 462 Calories; 5 Grams of Whole Grain Brown Rice; Avocado Toast: 462 Calories; Tuna + Spinach Wrap: 500 Calories; More ..."
 url: "https://diet.allwomenstalk.com/quick-and-easy-meals-under-500-calories/"
 category: "diet"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 8 Quick and Easy Meals under 500 Calories ...
@@ -144,16 +144,16 @@ It can be very tempting to reach for a calorific meal in a moment of temptation 
 
 ## Related Posts
 
-- [thanksgiving courses](https://allwomenstalk.com/8-courses-for-the-perfect-thanksgiving/)
-- [kid pretending to like food](https://food.allwomenstalk.com/fun-and-healthy-recipes-for-the-kids/)
 - [girly foods](https://food.allwomenstalk.com/best-comfort-foods-for-girls-night-in/)
-- [fall salad recipes](https://food.allwomenstalk.com/ways-to-make-salad-taste-better/)
-- [easy fast things to bake](https://food.allwomenstalk.com/super-easy-baking-recipes-to-help-you-start-appreciating-your-oven/)
+- [busy family recipes](https://food.allwomenstalk.com/easy-recipes-for-busy-families/)
+- [dinner ideas for sick stomach](https://food.allwomenstalk.com/soothing-recipes-for-upset-tummies/)
 - [bacon in not so hungry mouth](https://food.allwomenstalk.com/bacon-based-meals-that-will-have-you-weak-at-the-knees/)
 - [men's favorite meals](https://food.allwomenstalk.com/meal-recipes-hell-love/)
 - [protein rich breakfast recipes](https://food.allwomenstalk.com/protein-rich-breakfast-recipes/)
-- [dinner ideas for sick stomach](https://food.allwomenstalk.com/soothing-recipes-for-upset-tummies/)
-- [busy family recipes](https://food.allwomenstalk.com/easy-recipes-for-busy-families/)
+- [fall salad recipes](https://food.allwomenstalk.com/ways-to-make-salad-taste-better/)
+- [easy fast things to bake](https://food.allwomenstalk.com/super-easy-baking-recipes-to-help-you-start-appreciating-your-oven/)
+- [thanksgiving courses](https://allwomenstalk.com/8-courses-for-the-perfect-thanksgiving/)
+- [kid pretending to like food](https://food.allwomenstalk.com/fun-and-healthy-recipes-for-the-kids/)
 - [9 Foods under 100 Calories ...](https://weightloss.allwomenstalk.com/foods-under-100-calories/)
 - [8 Tips for Counting Calories ...](https://weightloss.allwomenstalk.com/tips-for-counting-calories/)
 

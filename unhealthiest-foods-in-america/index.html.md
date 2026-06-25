@@ -3,7 +3,7 @@ title: "10 Unhealthiest Foods in America ..."
 description: "Quizno's Veggie Hero (Large); Applebee’s Appetizer Sampler; Five Guys French Fries (Large); Chili's Big Mouth Bites; Pepperidge Farm Roasted Chicken Pot Pie; More ..."
 url: "https://diet.allwomenstalk.com/unhealthiest-foods-in-america/"
 category: "diet"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 10 Unhealthiest Foods in America ...
@@ -64,16 +64,16 @@ There are tons more bad food choices in America so make sure you look for the nu
 
 ## Related Posts
 
-- [100 calories of food](https://food.allwomenstalk.com/snacks-under-100-calories/)
-- [things that are surprisingly not vegetarian](https://food.allwomenstalk.com/common-foods-you-thought-were-vegetarian-but-might-not-be/)
 - [how to bring food to a potluck](https://food.allwomenstalk.com/healthy-foods-to-bring-to-any-pot-luck/)
-- [face oil for gua sha sensitive skin](https://food.allwomenstalk.com/best-snacks-for-kids/)
-- [site:food.allwomenstalk.com](https://food.allwomenstalk.com/surprising-sources-of-potassium/)
 - [why is applebee's oriental chicken salad so high i...](https://diet.allwomenstalk.com/most-fattening-salads-to-avoid/)
-- [foods that calm you down](https://health.allwomenstalk.com/foods-to-calm-you-down/)
-- [what is a good breakfast for energy](https://food.allwomenstalk.com/energy-boosting-breakfast-foods/)
-- [هل اليمام يؤكل](https://food.allwomenstalk.com/foods-that-involve-animal-cruelty-to-stay-away-from/)
+- [things that are surprisingly not vegetarian](https://food.allwomenstalk.com/common-foods-you-thought-were-vegetarian-but-might-not-be/)
 - [natural detox foods](https://health.allwomenstalk.com/foods-that-naturally-detox-your-body/)
+- [face oil for gua sha sensitive skin](https://food.allwomenstalk.com/best-snacks-for-kids/)
+- [هل اليمام يؤكل](https://food.allwomenstalk.com/foods-that-involve-animal-cruelty-to-stay-away-from/)
+- [what is a good breakfast for energy](https://food.allwomenstalk.com/energy-boosting-breakfast-foods/)
+- [foods that calm you down](https://health.allwomenstalk.com/foods-to-calm-you-down/)
+- [100 calories of food](https://food.allwomenstalk.com/snacks-under-100-calories/)
+- [site:food.allwomenstalk.com](https://food.allwomenstalk.com/surprising-sources-of-potassium/)
 - [10 Least Unhealthy Snack Foods at the Airport ...](https://travel.allwomenstalk.com/least-unhealthy-snack-foods-at-the-airport/)
 - [20 Healthiest Diet Foods for You ...](https://eatial.com/healthiest-diet-foods-for-you/)
 

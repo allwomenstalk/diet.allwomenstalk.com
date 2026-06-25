@@ -3,7 +3,7 @@ title: "8 Chocolate Desserts for Those on a Diet ..."
 description: "Chocolate Cheesecake Bites; Hershey Kisses; Lowfat Chocolate Mousse; Cocoa Meringue Drops; Low Calorie Chocolate Chip Cookies; More ..."
 url: "https://diet.allwomenstalk.com/chocolate-desserts-for-those-on-a-diet/"
 category: "diet"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 8 Chocolate Desserts for Those on a Diet ...

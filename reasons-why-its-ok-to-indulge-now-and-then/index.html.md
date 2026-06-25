@@ -3,7 +3,7 @@ title: "7 Reasons Why It's OK to Indulge Now and then ..."
 description: "It Stops Feelings of Deprivation; It Satisfies Cravings; It’s Fun; It Makes You Happy; It’s a Reward; More ..."
 url: "https://diet.allwomenstalk.com/reasons-why-its-ok-to-indulge-now-and-then/"
 category: "diet"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # 7 Reasons Why It's OK to Indulge Now and then ...
@@ -42,16 +42,16 @@ What do you indulge in? French fries are my indulgence. How do you keep it in mo
 
 ## Related Posts
 
+- [reasons to do pilates](https://fitness.allwomenstalk.com/convincing-reasons-to-do-pilates/)
+- [working out while on vacation](https://fitness.allwomenstalk.com/reasons-to-workout-while-on-vacation/)
+- [is scouts good for my son](https://parenting.allwomenstalk.com/reasons-your-son-should-be-a-boy-scout/)
+- [benefits of the library](https://books.allwomenstalk.com/benefits-of-going-to-your-local-libray/)
+- [festival sober](https://music.allwomenstalk.com/reasons-to-stay-sober-at-music-festivals/)
+- [should i babysit](https://parenting.allwomenstalk.com/reasons-you-should-babysit/)
+- [ted ed why you should read](https://lifestyle.allwomenstalk.com/reasons-why-you-should-watch-ted-talks-more-often/)
 - [moving accross country](https://lifestyle.allwomenstalk.com/wonderful-reasons-to-move-across-the-country/)
 - [i will light candles this christmas](https://lifestyle.allwomenstalk.com/reasons-to-light-candles-more-often/)
-- [working out while on vacation](https://fitness.allwomenstalk.com/reasons-to-workout-while-on-vacation/)
-- [festival sober](https://music.allwomenstalk.com/reasons-to-stay-sober-at-music-festivals/)
-- [is scouts good for my son](https://parenting.allwomenstalk.com/reasons-your-son-should-be-a-boy-scout/)
-- [ted ed why you should read](https://lifestyle.allwomenstalk.com/reasons-why-you-should-watch-ted-talks-more-often/)
-- [benefits of the library](https://books.allwomenstalk.com/benefits-of-going-to-your-local-libray/)
 - [buying local art](https://lifestyle.allwomenstalk.com/reasons-to-buy-from-local-artists/)
-- [reasons to do pilates](https://fitness.allwomenstalk.com/convincing-reasons-to-do-pilates/)
-- [should i babysit](https://parenting.allwomenstalk.com/reasons-you-should-babysit/)
 - [8 Ways to Reward Yourself when on a Diet ...](https://weightloss.allwomenstalk.com/ways-to-reward-yourself-when-on-a-diet/)
 - [8 Times when It's OK to Cheat on Your Diet ...](https://diet.allwomenstalk.com/times-when-its-ok-to-cheat-on-your-diet/)
 
