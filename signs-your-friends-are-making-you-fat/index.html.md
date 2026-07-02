@@ -3,7 +3,7 @@ title: "7 Signs Your Friends Are Making You Fat ..."
 description: "They Only Eat Junk Food; They Make Fun of Your Weight; They're Obese; They Love to Party; They Make You Feel Justified; More ..."
 url: "https://diet.allwomenstalk.com/signs-your-friends-are-making-you-fat/"
 category: "diet"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 7 Signs Your Friends Are Making You Fat ...
@@ -43,15 +43,15 @@ Often times, our friends influence us without us realizing it. You don't have to
 ## Related Posts
 
 - [severe weather warning](https://lifestyle.allwomenstalk.com/warning-signs-world-war-3-is-on-the-way/)
-- [baser instincts meaning](https://lifestyle.allwomenstalk.com/signs-you-are-still-ruled-by-your-base-instincts/)
-- [9 narcissist traits](https://inspiration.allwomenstalk.com/signs-you-are-a-narcissist/)
-- [signs of a great manager](https://money.allwomenstalk.com/signs-you-have-a-good-boss/)
+- [ombivert](https://lifestyle.allwomenstalk.com/psychology-101-here-are-the-signs-you-are-an-ambivert/)
+- [fangirl tumblr](https://lifestyle.allwomenstalk.com/signs-you-are-definitely-a-fan-girl/)
 - [am i alpha female](https://inspiration.allwomenstalk.com/are-you-an-alpha-female-here-are-the-signs/)
 - [signs you're ready for a baby](https://parenting.allwomenstalk.com/signs-youre-ready-to-be-a-parent/)
-- [ombivert](https://lifestyle.allwomenstalk.com/psychology-101-here-are-the-signs-you-are-an-ambivert/)
-- [signs you are studying the wrong course](https://teen.allwomenstalk.com/warning-signs-that-youve-chosen-the-wrong-major/)
-- [fangirl tumblr](https://lifestyle.allwomenstalk.com/signs-you-are-definitely-a-fan-girl/)
+- [baser instincts meaning](https://lifestyle.allwomenstalk.com/signs-you-are-still-ruled-by-your-base-instincts/)
+- [9 narcissist traits](https://inspiration.allwomenstalk.com/signs-you-are-a-narcissist/)
 - [teen namen](https://teen.allwomenstalk.com/signs-youre-ready-for-the-semester-to-end/)
+- [signs you are studying the wrong course](https://teen.allwomenstalk.com/warning-signs-that-youve-chosen-the-wrong-major/)
+- [signs of a great manager](https://money.allwomenstalk.com/signs-you-have-a-good-boss/)
 - [10 Fun Things to do with Your Friends to Lose Weig...](https://allwomenstalk.com/10-fun-things-to-do-with-your-friends-to-lose-weight/)
 - [10 Signs Someone's Obese ...](https://allwomenstalk.com/10-signs-someones-obese/)
 
