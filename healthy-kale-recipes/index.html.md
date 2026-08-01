@@ -3,7 +3,7 @@ title: "7 Healthy Kale Recipes ..."
 description: "Kale Chips Recipe...; Kale, Apple, and Pancetta Salad Recipe...; Salsa-Braised Kale Recipe...; Two-Bean Soup with Kale Recipe...; Eggplant Ratatouille with Beans and Kale Recipe...; More ..."
 url: "https://diet.allwomenstalk.com/healthy-kale-recipes/"
 category: "diet"
-last_updated: "2026-07-25"
+last_updated: "2026-08-01"
 ---
 
 # 7 Healthy Kale Recipes ...
@@ -211,16 +211,16 @@ Whether you want to make **kale recipes** to help kick start your new healthy ha
 
 ## Related Posts
 
+- [500 calorie lunches for work](https://diet.allwomenstalk.com/quick-and-easy-meals-under-500-calories/)
 - [crescent roll instructions](https://cooking.allwomenstalk.com/easy-crescent-roll-recipes/)
+- [new thanksgiving dinner ideas](https://allwomenstalk.com/7-new-ideas-for-thanksgiving-dinner/)
+- [best egg sandwich recipes](https://cooking.allwomenstalk.com/great-egg-sandwich-recipes-for-everyone/)
 - [ethnic food ideas](https://cooking.allwomenstalk.com/healthy-and-filling-ethnic-recipes-to-try-this-fall/)
+- [fall salad recipes](https://food.allwomenstalk.com/ways-to-make-salad-taste-better/)
 - [planning a dinner party for 10](https://lifestyle.allwomenstalk.com/easy-tips-on-throwing-the-best-dinner-party-ever/)
 - [what is the worst food for you](https://food.allwomenstalk.com/simple-dinner-anyone-can-learn-to-make/)
-- [best egg sandwich recipes](https://cooking.allwomenstalk.com/great-egg-sandwich-recipes-for-everyone/)
-- [500 calorie lunches for work](https://diet.allwomenstalk.com/quick-and-easy-meals-under-500-calories/)
 - [substitutes for cooking](https://food.allwomenstalk.com/simple-ingredient-substitutions-to-try/)
-- [new thanksgiving dinner ideas](https://allwomenstalk.com/7-new-ideas-for-thanksgiving-dinner/)
 - [reuse cans](https://diy.allwomenstalk.com/clever-ways-to-repurpose-tuna-cans/)
-- [fall salad recipes](https://food.allwomenstalk.com/ways-to-make-salad-taste-better/)
 - [7 Meat and Potatoes Recipes ...](https://eatial.com/7-meat-and-potatoes-recipes/)
 - [7 Tasty Slow-Cooker Recipes ...](https://cooking.allwomenstalk.com/tasty-slow-cooker-recipes/)
 
