@@ -3,7 +3,7 @@ title: "7 Ways to Heal Your Broken Relationship with Food ..."
 description: "Look at Your past; Clear the Clutter; Forgive Yourself; Take a Walk; Cook for Yourself; More ..."
 url: "https://diet.allwomenstalk.com/ways-to-heal-your-broken-relationship-with-food/"
 category: "diet"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # 7 Ways to Heal Your Broken Relationship with Food ...
@@ -54,16 +54,16 @@ I hope you know that I understand these tips probably seem pretty tough. I also 
 
 ## Related Posts
 
-- [how to eat beetroot](https://food.allwomenstalk.com/ways-to-add-beets-into-your-diet/)
-- [excuses for skipping](https://health.allwomenstalk.com/excuses-for-skipping-breakfast-and-how-to-overcome-that/)
-- [recover me yoga](https://health.allwomenstalk.com/ways-yoga-can-help-you-recover-from-your-eating-disorder/)
-- [froyo vs yogurt](https://food.allwomenstalk.com/ways-to-make-frozen-yogurt-healthier/)
-- [how does your family affect your diet?](https://diet.allwomenstalk.com/ways-your-family-affects-your-dieting-habits/)
-- [is olive oil bad for ibs](https://food.allwomenstalk.com/cooking-tips-for-minimizing-ibs-symptoms/)
-- [overeating when drunk](https://health.allwomenstalk.com/ways-to-prevent-overeating-when-drinking-alcohol/)
-- [best way to get your greens](https://food.allwomenstalk.com/ways-to-get-more-greens-in-your-diet/)
 - [italian songs about food](https://food.allwomenstalk.com/ways-to-make-italian-food-healthier/)
+- [best way to get your greens](https://food.allwomenstalk.com/ways-to-get-more-greens-in-your-diet/)
+- [how to eat beetroot](https://food.allwomenstalk.com/ways-to-add-beets-into-your-diet/)
+- [is olive oil bad for ibs](https://food.allwomenstalk.com/cooking-tips-for-minimizing-ibs-symptoms/)
+- [excuses for skipping](https://health.allwomenstalk.com/excuses-for-skipping-breakfast-and-how-to-overcome-that/)
+- [how does your family affect your diet?](https://diet.allwomenstalk.com/ways-your-family-affects-your-dieting-habits/)
+- [overeating when drunk](https://health.allwomenstalk.com/ways-to-prevent-overeating-when-drinking-alcohol/)
 - [what to do when overeat](https://weightloss.allwomenstalk.com/things-to-do-after-you-overeat/)
+- [froyo vs yogurt](https://food.allwomenstalk.com/ways-to-make-frozen-yogurt-healthier/)
+- [recover me yoga](https://health.allwomenstalk.com/ways-yoga-can-help-you-recover-from-your-eating-disorder/)
 - [7 Ways to Repair Your Relationship with Food ...](https://diet.allwomenstalk.com/ways-to-repair-your-relationship-with-food/)
 - [10 Ways to Beat Dysfunctional Eating Habits ...](https://diet.allwomenstalk.com/ways-to-beat-dysfunctional-eating-habits/)
 

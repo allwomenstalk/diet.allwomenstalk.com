@@ -3,7 +3,7 @@ title: "Everything You Ever Wanted to Know about the 80/10/10 Diet ..."
 description: "Two is Not Better than One; You Need to Increase Your Calorie Intake; No Cooked FOOD is Allowed; Energy Spike; It’s Best for Vegan Athletes; More ..."
 url: "https://diet.allwomenstalk.com/things-you-must-know-about-801010-diet-before-getting-into-it/"
 category: "diet"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # Everything You Ever Wanted to Know about the 80/10/10 Diet ...
@@ -42,15 +42,15 @@ The 80/10/10 diet has blown up on the Internet and it’s gaining a lot of atten
 
 ## Related Posts
 
-- [low-fiber restaurant food](https://food.allwomenstalk.com/foods-to-avoid-if-youre-on-a-low-fiber-diet/)
-- [kinds of hunger](https://diet.allwomenstalk.com/types-of-hunger-you-should-be-able-to-distinguish/)
-- [paula deen spanish rice](https://food.allwomenstalk.com/heres-why-you-should-never-run-out-of-rice/)
-- [why can't i get a six pack](https://fitness.allwomenstalk.com/reasons-six-pack-abs-are-really-overrated/)
-- [strong skinny people](https://fitness.allwomenstalk.com/reasons-to-focus-on-being-strong-instead-of-skinny/)
-- [orthorexics](https://health.allwomenstalk.com/eating-disorder-alert-see-if-you-could-be-orthorexic/)
 - [does the color of food affect your appetite](https://food.allwomenstalk.com/did-you-know-that-these-colors-affect-your-appetite/)
-- [is macaroni and cheese good for acid reflux](https://food.allwomenstalk.com/fatty-foods-that-will-trigger-heartburn-or-at-least-ruin-your-diet/)
+- [strong skinny people](https://fitness.allwomenstalk.com/reasons-to-focus-on-being-strong-instead-of-skinny/)
+- [low-fiber restaurant food](https://food.allwomenstalk.com/foods-to-avoid-if-youre-on-a-low-fiber-diet/)
+- [orthorexics](https://health.allwomenstalk.com/eating-disorder-alert-see-if-you-could-be-orthorexic/)
+- [why can't i get a six pack](https://fitness.allwomenstalk.com/reasons-six-pack-abs-are-really-overrated/)
 - [is skipping meals bad](https://health.allwomenstalk.com/you-need-to-know-why-skipping-meals-is-bad-for-your-health/)
+- [kinds of hunger](https://diet.allwomenstalk.com/types-of-hunger-you-should-be-able-to-distinguish/)
+- [is macaroni and cheese good for acid reflux](https://food.allwomenstalk.com/fatty-foods-that-will-trigger-heartburn-or-at-least-ruin-your-diet/)
+- [paula deen spanish rice](https://food.allwomenstalk.com/heres-why-you-should-never-run-out-of-rice/)
 - [156 calories](https://food.allwomenstalk.com/youll-learn-so-much-from-these-calorie-infographics/)
 - [10 Foods to Eat to Lose Weight ...](https://allwomenstalk.com/10-foods-to-eat-to-lose-weight/)
 - [10 Tricks for Eating Less ...](https://allwomenstalk.com/10-tricks-for-eating-less/)

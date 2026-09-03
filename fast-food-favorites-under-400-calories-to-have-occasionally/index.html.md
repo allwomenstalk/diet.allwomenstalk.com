@@ -3,7 +3,7 @@ title: "10 Fast Food Favorites under 400 Calories to Have Occasionally ..."
 description: "McDonald’s Fruit and Yogurt Parfait; McDonald’s Fruit and Maple Oatmeal; McDonald’s Premium Southwest Salad; McDonald’s Vanilla Cone; McDonald’s Premium Chicken Sandwich; More ..."
 url: "https://diet.allwomenstalk.com/fast-food-favorites-under-400-calories-to-have-occasionally/"
 category: "diet"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # 10 Fast Food Favorites under 400 Calories to Have Occasionally ...
@@ -88,14 +88,14 @@ Top Image Source: _corinagaffey.tumblr.com_
 
 ## Related Posts
 
-- [healthies grains](https://food.allwomenstalk.com/healthiest-whole-grains-to-enjoy/)
-- [best late night junk food](https://health.allwomenstalk.com/healthy-late-night-alternatives-to-junk-food/)
 - [healthy fall habits](https://food.allwomenstalk.com/healthiest-fall-foods-to-add-to-your-table/)
-- [natural detox foods](https://health.allwomenstalk.com/foods-that-naturally-detox-your-body/)
-- [low calorie cereal bars](https://diet.allwomenstalk.com/healthy-alternatives-to-not-so-healthy-cereal-bars/)
-- [foods that calm you down](https://health.allwomenstalk.com/foods-to-calm-you-down/)
-- [sushi options](https://diet.allwomenstalk.com/healthiest-sushi-options-to-enjoy/)
 - [site:food.allwomenstalk.com](https://food.allwomenstalk.com/surprising-sources-of-potassium/)
+- [best late night junk food](https://health.allwomenstalk.com/healthy-late-night-alternatives-to-junk-food/)
+- [foods that calm you down](https://health.allwomenstalk.com/foods-to-calm-you-down/)
+- [healthies grains](https://food.allwomenstalk.com/healthiest-whole-grains-to-enjoy/)
+- [sushi options](https://diet.allwomenstalk.com/healthiest-sushi-options-to-enjoy/)
+- [low calorie cereal bars](https://diet.allwomenstalk.com/healthy-alternatives-to-not-so-healthy-cereal-bars/)
+- [natural detox foods](https://health.allwomenstalk.com/foods-that-naturally-detox-your-body/)
 - [what salad dressing has the least calories](https://diet.allwomenstalk.com/high-calorie-salad-dressings-to-avoid/)
 - [the most unhealthiest food](https://diet.allwomenstalk.com/unhealthiest-foods-in-america/)
 - [9 Foods under 100 Calories ...](https://weightloss.allwomenstalk.com/foods-under-100-calories/)
